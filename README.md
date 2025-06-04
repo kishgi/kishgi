@@ -6,7 +6,6 @@
 
 <h3 align="center">🚀 Software Engineering Undergraduate | 🇱🇰 Sri Lanka</h3>
 
----
 
 <div align="center">
   <a href="mailto:kishgi1234@gmail.com">

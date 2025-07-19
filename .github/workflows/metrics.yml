@@ -20,5 +20,5 @@ jobs:
           template: terminal
           filename: metrics.terminal.svg
           token: ${{ secrets.METRICS }}
-          base: ''
+          base: header, metadata
           config_output: Hi! I am Kishgi. Welcome

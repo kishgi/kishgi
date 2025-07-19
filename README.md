@@ -45,6 +45,8 @@
 
 ---
 
+![Leetcode Stats](https://leetcard.jacoblin.cool/kishgi?ext=activity)
+
 ### 🐍 GitHub Activity Snake
 
 <div align="center">

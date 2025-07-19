@@ -29,6 +29,8 @@
 
 
 ![Metrics](/metrics.terminal.svg)
+![Metrics](/github-metrics.svg)
+![Metrics](/metrics.plugin.leetcode.svg)
 
 ### 🛠️ Languages & Tools
 

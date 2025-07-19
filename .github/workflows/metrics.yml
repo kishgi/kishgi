@@ -4,7 +4,7 @@ name: Example Metrics
 
 on:
   schedule:
-    - cron: "0 0 * * *"  # Daily at midnight UTC
+    - cron: "0 0 * * *" # Daily at midnight UTC
   workflow_dispatch:
   push:
     branches: ["main", "master"]
@@ -37,11 +37,6 @@ jobs:
           plugin_languages_recent_load: 300
           plugin_languages_sections: most-used
           plugin_languages_threshold: 0%
-          plugin_leetcode: yes
-          plugin_leetcode_limit_recent: 2
-          plugin_leetcode_limit_skills: 10
-          plugin_leetcode_sections: solved
-          plugin_leetcode_user: .kishgi.login
       - name: LeetCode
         uses: lowlighter/metrics@latest
         with:
@@ -49,7 +44,7 @@ jobs:
           token: NOT_NEEDED
           base: ""
           plugin_leetcode: yes
-          plugin_leetcode_sections: solved, skills, 
+          plugin_leetcode_sections: solved, skills,
       - uses: lowlighter/metrics@latest
         with:
           token: ${{ secrets.METRICS}}

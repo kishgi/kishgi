@@ -27,6 +27,9 @@
 
 ---
 
+
+![Metrics](/github-metrics.svg)
+
 ### 🛠️ Languages & Tools
 
 <div align="center">

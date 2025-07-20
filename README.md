@@ -31,4 +31,4 @@ tools:
 
 ![kishgi's Stats](https://github-readme-stats.vercel.app/api?username=kishgi&theme=dark&show_icons=true&hide_border=true&count_private=false)
 
-<img src="https://readmecodegen.vercel.app/api/leetcode-stats/kishgi?theme=dark&font=%27JetBrains+Mono%27%2C+%27Courier+New%27%2C+monospace&template=minimal" width="400" />
+<img src="https://readmecodegen.vercel.app/api/leetcode-stats/kishgi?theme=dark&font=%27JetBrains+Mono%27%2C+%27Courier+New%27%2C+monospace&template=minimal" width="800" />

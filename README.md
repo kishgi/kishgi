@@ -25,3 +25,13 @@ tools:
   - Git
   - NGINX
   - Helm
+```
+
+### 📊 GitHub Stats
+
+![Kishgi's GitHub stats](https://github-readme-stats.vercel.app/api?username=kishgi&show_icons=true&theme=radical)
+
+
+### 🧠 Top Languages
+
+![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=kishgi&layout=compact&theme=radical)

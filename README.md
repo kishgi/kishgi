@@ -30,7 +30,3 @@ tools:
 ### GitHub Stats
 
 ![kishgi's Stats](https://github-readme-stats.vercel.app/api?username=kishgi&theme=dark&show_icons=true&hide_border=true&count_private=false)
-
-### LeetCode Stats
-
-![LeetCode Stats](https://readmecodegen.vercel.app/api/leetcode-stats/kishgi?theme=dark&acceptance=false&reputation=false&font=%27JetBrains+Mono%27%2C+%27Courier+New%27%2C+monospace&template=minimal)

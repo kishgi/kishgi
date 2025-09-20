@@ -27,7 +27,8 @@ def update_readme(kural):
 **Meaning (English):**  
 {kural['en'].strip()}
 
-### Who am I?
+
+## Who am I?
 
 Hi! I'm Kishgi - Software Engineering undergraduate passionate about DevOps and DevSecOps.  
 Focused on building reliable CI/CD pipelines and automating workflows.  
@@ -35,6 +36,7 @@ Currently learning cloud technologies and infrastructure automation.
 
 [![](https://img.shields.io/badge/linkedin-0a66c2)](http://linkedin.com/in/kishgi) [![](https://img.shields.io/badge/portfolio-8A2BE2)](http://kishgi.vercel.app)
 
+</pre>
 
 *“Thirukkural is not just literature - it's a life manual. Come again tomorrow for another one”*
 """

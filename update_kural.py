@@ -17,7 +17,7 @@ def update_readme(kural):
 <div align="left">
 
 > "**{kural['line1']}**  
-> **{kural['line2']}**" — <span style="font-style: italic; font-size: 0.9em;">குறள் {kural['number']}</span>
+> **{kural['line2']}**" — *குறள் {kural['number']}*
 
 </div>
 
@@ -35,7 +35,7 @@ Hi! I'm Kishgi - Software Engineering undergraduate passionate about DevOps and 
 Focused on building reliable CI/CD pipelines and automating workflows.  
 Currently learning cloud technologies and infrastructure automation.  
 
-📫 You can reach me at: [![](https://img.shields.io/badge/linkedin-0a66c2)](http://linkedin.com/in/kishgi) ![Static Badge](https://img.shields.io/badge/portfolio-8A2BE2)
+[![](https://img.shields.io/badge/linkedin-0a66c2)](http://linkedin.com/in/kishgi) [![](https://img.shields.io/badge/portfolio-8A2BE2)](http://kishgi.vercel.app)
 
 ---
 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கண்டுகேட்டு உண்டுயிர்த்து உற்றறியும் ஐம்புலனும்**  
-> **ஒண்தொடி கண்ணே உள.**" — <span style="font-style: italic; font-size: 0.9em;">குறள் 1101</span>
+> "**வருமுன்னர்க் காவாதான் வாழ்க்கை எரிமுன்னர்**  
+> **வைத்தூறு போலக் கெடும்.**" — *குறள் 435*
 
 </div>
 
 **Meaning (தமிழில்):**  
-வளையல் அணிந்த இந்த வடிவழகியிடம்; கண்டு மகிழவும், கேட்டு மகிழவும், தொட்டு மகிழவும், முகர்ந்துண்டு மகிழவுமான ஐம்புல இன்பங்களும் நிறைந்துள்ளன.
+முன்கூட்டியே எச்சரிக்கையாக இருந்து ஒரு தவறான செயலைத் தவிர்த்துக் கொள்ளாதவருடைய வாழ்க்கையானது நெருப்பின் முன்னால் உள்ள வைக்கோல் போர் போலக் கருகிவிடும்.
 
 **Meaning (English):**  
-The (simultaneous) enjoyment of the five senses of sight, hearing, taste, smell and touch can only be found with bright braceleted (women).
+The prosperity of him who does not timely guard against faults, will perish like straw before fire.
 
 ---
 
@@ -19,7 +19,7 @@ Hi! I'm Kishgi - Software Engineering undergraduate passionate about DevOps and 
 Focused on building reliable CI/CD pipelines and automating workflows.  
 Currently learning cloud technologies and infrastructure automation.  
 
-📫 You can reach me at: [![](https://img.shields.io/badge/linkedin-0a66c2)](http://linkedin.com/in/kishgi) ![Static Badge](https://img.shields.io/badge/portfolio-8A2BE2)
+[![](https://img.shields.io/badge/linkedin-0a66c2)](http://linkedin.com/in/kishgi) [![](https://img.shields.io/badge/portfolio-8A2BE2)](http://kishgi.vercel.app)
 
 ---
 

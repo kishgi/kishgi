@@ -1,17 +1,18 @@
 <div align="left">
 
-> "**அறன்கடை நின்றாருள் எல்லாம் பிறன்கடை**  
-> **நின்றாரின் பேதையார் இல்.**" — *குறள் 142*
+> "**வினைக் குரிமை நாடிய பின்றை அவனை**  
+> **அதற்குரிய னாகச் செயல்.**" — *குறள் 518*
 
 </div>
 
 **பொருள்:**  
-பிறன் மனைவியை அடைவதற்குத் துணிந்தவர்கள் அறவழியை விடுத்துத் தீயவழியில் செல்லும் கடைநிலை மனிதர்களைக் காட்டிலும் கீழானவர்கள்.
+ஒரு செயலில் ஈ.டுபடுவதற்கு ஏற்றவனா என்பதை ஆராய்ந்து அறிந்த பிறகே, அவனை அந்தச் செயலில் ஈ.டுபடுத்த வேண்டும்.
 
 **Meaning (English):**  
-Among all those who stand on the outside of virtue, there are no greater fools than those who stand outside their neighbour’s door.
+Having considered what work a man is fit for, let (the king) employ him in that work.
 
-### Who am I?
+
+## Who am I?
 
 Hi! I'm Kishgi - Software Engineering undergraduate passionate about DevOps and DevSecOps.  
 Focused on building reliable CI/CD pipelines and automating workflows.  
@@ -19,5 +20,6 @@ Currently learning cloud technologies and infrastructure automation.
 
 [![](https://img.shields.io/badge/linkedin-0a66c2)](http://linkedin.com/in/kishgi) [![](https://img.shields.io/badge/portfolio-8A2BE2)](http://kishgi.vercel.app)
 
+</pre>
 
 *“Thirukkural is not just literature - it's a life manual. Come again tomorrow for another one”*

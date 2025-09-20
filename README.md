@@ -1,27 +1,26 @@
 <div align="left">
 
-> "**இலமென்று வெஃகுதல் செய்யார் புலம்வென்ற**  
-> **புன்மையில் காட்சி யவர்.**" — குறள் 174
+> "**கண்டுகேட்டு உண்டுயிர்த்து உற்றறியும் ஐம்புலனும்**  
+> **ஒண்தொடி கண்ணே உள.**" — <span style="font-style: italic; font-size: 0.9em;">குறள் 1101</span>
 
 </div>
 
 **Meaning (தமிழில்):**  
-புலனடக்கம் வாய்ந்த தூயவர், வறுமையில் வாடும் நிலையிலேகூடப் பிறர் பொருளைக் கவர்ந்திட விரும்ப மாட்டார்.
+வளையல் அணிந்த இந்த வடிவழகியிடம்; கண்டு மகிழவும், கேட்டு மகிழவும், தொட்டு மகிழவும், முகர்ந்துண்டு மகிழவுமான ஐம்புல இன்பங்களும் நிறைந்துள்ளன.
 
 **Meaning (English):**  
-One who is flawless and wise and has mastered all senses, will never feel ‘I’m poor’ and yearn for other’s wealth.
+The (simultaneous) enjoyment of the five senses of sight, hearing, taste, smell and touch can only be found with bright braceleted (women).
 
 ---
 
 ## 👋 About Me
 
-Hi! I'm Kishgi — a developer who appreciates clean code, culture, and creativity.  
-I'm currently working on a few cool personal projects and learning more about DevOps and open source.  
-Stay tuned for more updates!
+Hi! I'm Kishgi - Software Engineering undergraduate passionate about DevOps and DevSecOps.  
+Focused on building reliable CI/CD pipelines and automating workflows.  
+Currently learning cloud technologies and infrastructure automation.  
 
-📫 You can reach me at: [your-email@example.com]  
-🌐 Portfolio: [https://your-portfolio-link.com](https://your-portfolio-link.com)
+📫 You can reach me at: [![](https://img.shields.io/badge/linkedin-0a66c2)](http://linkedin.com/in/kishgi) ![Static Badge](https://img.shields.io/badge/portfolio-8A2BE2)
 
 ---
 
-🕉️ *“Thirukkural is not just literature — it's a life manual.”*
+*“Thirukkural is not just literature - it's a life manual. Come again tomorrow for another one”*

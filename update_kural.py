@@ -17,7 +17,7 @@ def update_readme(kural):
 <div align="left">
 
 > "**{kural['line1']}**  
-> **{kural['line2']}**" — குறள் {kural['number']}
+> **{kural['line2']}**" — <span style="font-style: italic; font-size: 0.9em;">குறள் {kural['number']}</span>
 
 </div>
 
@@ -31,16 +31,15 @@ def update_readme(kural):
 
 ## 👋 About Me
 
-Hi! I'm Kishgi — a developer who appreciates clean code, culture, and creativity.  
-I'm currently working on a few cool personal projects and learning more about DevOps and open source.  
-Stay tuned for more updates!
+Hi! I'm Kishgi - Software Engineering undergraduate passionate about DevOps and DevSecOps.  
+Focused on building reliable CI/CD pipelines and automating workflows.  
+Currently learning cloud technologies and infrastructure automation.  
 
-📫 You can reach me at: [your-email@example.com]  
-🌐 Portfolio: [https://your-portfolio-link.com](https://your-portfolio-link.com)
+📫 You can reach me at: [![](https://img.shields.io/badge/linkedin-0a66c2)](http://linkedin.com/in/kishgi) ![Static Badge](https://img.shields.io/badge/portfolio-8A2BE2)
 
 ---
 
-🕉️ *“Thirukkural is not just literature — it's a life manual.”*
+*“Thirukkural is not just literature - it's a life manual. Come again tomorrow for another one”*
 """
 
     with open("README.md", "w", encoding="utf-8") as f:

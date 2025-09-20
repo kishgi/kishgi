@@ -14,16 +14,12 @@ def fetch_random_kural():
 
 def update_readme(kural):
     content = f"""\
-<div align="center">
+<div align="left">
 
-### 📝 குறள் {kural['number']}
-
-> **{kural['line1']}**  
-> **{kural['line2']}**
+> "**{kural['line1']}**  
+> **{kural['line2']}**" — குறள் {kural['number']}
 
 </div>
-
----
 
 **Meaning (தமிழில்):**  
 {kural['urai1'].strip()}

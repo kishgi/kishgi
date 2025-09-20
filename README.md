@@ -1,39 +1,31 @@
-# 👋 Welcome to My GitHub
-
 <div align="center">
 
-## 📜 **திருக்குறள் இன்று**  
-### _Kural of the Day_ — `#179`
+### 📝 குறள் 171
 
-<table>
-<tr><td>📖 <strong>பால் (Section)</strong></td><td>அறத்துப்பால்</td></tr>
-<tr><td>📚 <strong>இயல் (Subdivision)</strong></td><td>இல்லறவியல்</td></tr>
-<tr><td>🏛️ <strong>அதிகாரம் (Chapter)</strong></td><td>வெஃகாமை</td></tr>
-</table>
-
----
-
-### 📝 **குறள்:**  
-> **அறனறிந்து வெஃகா அறிவுடையார்ச் சேரும்**  
-> **திறன்அறிந் தாங்கே திரு.**
-
----
-
-### 🌱 _**Poetic Translation**_  
-> *"Fortune seeks the just and wise  Who are free from coveting vice”*
-
----
-
-### 🧠 _**Plain Meaning (English)**_  
-> Wealth will find means to bestow itself on those who, knowing the virtue of not coveting others’ property, wisely desist from it.
-
----
-
-### 🗣️ _**Explanation (தமிழில்)**_  
-> பிறர் பொருளைக் கவர விரும்பாத அறநெறி உணர்ந்த அறிஞர் பெருமக்களின் ஆற்றலுக்கேற்ப அவர்களிடம் செல்வம் சேரும்.
+> **நடுவின்றி நன்பொருள் வெஃகின் குடிபொன்றிக்**  
+> **குற்றமும் ஆங்கே தரும்.**
 
 </div>
 
 ---
 
-🚀 I’m currently working on cool projects. Stay tuned!
+**Meaning (தமிழில்):**  
+மனச்சான்றை ஒதுக்கிவிட்டுப் பிறர்க்குரிய அரும் பொருளைக் கவர்ந்து கொள்ள விரும்புகிறவரின் குடியும் கெட்டொழிந்து, பழியும் வந்து சேரும்.
+
+**Meaning (English):**  
+If a man departing from equity covet the property (of others), at that very time will his family be destroyed and guilt be incurred.
+
+---
+
+## 👋 About Me
+
+Hi! I'm Kishgi — a developer who appreciates clean code, culture, and creativity.  
+I'm currently working on a few cool personal projects and learning more about DevOps and open source.  
+Stay tuned for more updates!
+
+📫 You can reach me at: [your-email@example.com]  
+🌐 Portfolio: [https://your-portfolio-link.com](https://your-portfolio-link.com)
+
+---
+
+🕉️ *“Thirukkural is not just literature — it's a life manual.”*

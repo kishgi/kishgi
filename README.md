@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சிறுமையும் செல்லாத் துனியும் வறுமையும்**  
-> **இல்லாயின் வெல்லும் படை.**" — *குறள் 769*
+> "**ஒல்வ தறிவது அறிந்ததன் கண்தங்கிச்**  
+> **செல்வார்க்குச் செல்லாதது இல்.**" — *குறள் 472*
 
 </div>
 
 **பொருள்:**  
-சிறுத்துவிடாமலும், தலைவனை வெறுத்து விடாமலும், பயன்படாத நிலை இல்லாமலும் உள்ள படைதான் வெற்றி பெற முடியும்.
+ஒரு செயலில் ஈ.டுபடும்போது அச்செயலைப் பற்றிய அனைத்தையும் ஆராய்ந்தறிந்து முயற்சி மேற்கொண்டால் முடியாதது எதுவுமில்லை.
 
 **Meaning (English):**  
-An army can triumph (over its foes) if it is free from diminution; irremediable aversion and poverty.
+There is nothing which may not be accomplished by those who, before they attack (an enemy), make themselves acquainted with their own ability, and with whatever else is (needful) to be known, and apply themselves wholly to their object.
 
 
 ## Who am I?

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வினைக் குரிமை நாடிய பின்றை அவனை**  
-> **அதற்குரிய னாகச் செயல்.**" — *குறள் 518*
+> "**சிறுமையும் செல்லாத் துனியும் வறுமையும்**  
+> **இல்லாயின் வெல்லும் படை.**" — *குறள் 769*
 
 </div>
 
 **பொருள்:**  
-ஒரு செயலில் ஈ.டுபடுவதற்கு ஏற்றவனா என்பதை ஆராய்ந்து அறிந்த பிறகே, அவனை அந்தச் செயலில் ஈ.டுபடுத்த வேண்டும்.
+சிறுத்துவிடாமலும், தலைவனை வெறுத்து விடாமலும், பயன்படாத நிலை இல்லாமலும் உள்ள படைதான் வெற்றி பெற முடியும்.
 
 **Meaning (English):**  
-Having considered what work a man is fit for, let (the king) employ him in that work.
+An army can triumph (over its foes) if it is free from diminution; irremediable aversion and poverty.
 
 
 ## Who am I?

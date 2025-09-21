@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஒல்வ தறிவது அறிந்ததன் கண்தங்கிச்**  
-> **செல்வார்க்குச் செல்லாதது இல்.**" — *குறள் 472*
+> "**ஞாலம் கருதினுங் கைகூடுங் காலம்**  
+> **கருதி இடத்தாற் செயின்.**" — *குறள் 484*
 
 </div>
 
 **பொருள்:**  
-ஒரு செயலில் ஈ.டுபடும்போது அச்செயலைப் பற்றிய அனைத்தையும் ஆராய்ந்தறிந்து முயற்சி மேற்கொண்டால் முடியாதது எதுவுமில்லை.
+உரிய காலத்தையும் இடத்தையும் ஆய்ந்தறிந்து செயல்பட்டால் உலகமேகூடக் கைக்குள் வந்துவிடும்.
 
 **Meaning (English):**  
-There is nothing which may not be accomplished by those who, before they attack (an enemy), make themselves acquainted with their own ability, and with whatever else is (needful) to be known, and apply themselves wholly to their object.
+Though (a man) should meditate (the conquest of) the world, he may accomplish it if he acts in the right time, and at the right place.
 
 
 ## Who am I?

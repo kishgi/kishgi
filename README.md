@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஞாலம் கருதினுங் கைகூடுங் காலம்**  
-> **கருதி இடத்தாற் செயின்.**" — *குறள் 484*
+> "**மக்கள்மெய் தீண்டல் உடற்கின்பம் மற்று அவர்**  
+> **சொற்கேட்டல் இன்பம் செவிக்கு.**" — *குறள் 65*
 
 </div>
 
 **பொருள்:**  
-உரிய காலத்தையும் இடத்தையும் ஆய்ந்தறிந்து செயல்பட்டால் உலகமேகூடக் கைக்குள் வந்துவிடும்.
+தம் குழந்தைகளைத் தழுவி மகிழ்வது உடலுக்கு இன்பத்தையும், அந்தக் குழந்தைகளின் மழலை மொழி கேட்பது செவிக்கு இன்பத்தையும் வழங்கும்.
 
 **Meaning (English):**  
-Though (a man) should meditate (the conquest of) the world, he may accomplish it if he acts in the right time, and at the right place.
+The touch of children gives pleasure to the body, and the hearing of their words, pleasure to the ear.
 
 
 ## Who am I?

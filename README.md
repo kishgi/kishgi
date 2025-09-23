@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மக்கள்மெய் தீண்டல் உடற்கின்பம் மற்று அவர்**  
-> **சொற்கேட்டல் இன்பம் செவிக்கு.**" — *குறள் 65*
+> "**அறிந்தாற்றிச் செய்கிற்பாற்கு அல்லால் வினைதான்**  
+> **சிறந்தானென்று ஏவற்பாற் றன்று.**" — *குறள் 515*
 
 </div>
 
 **பொருள்:**  
-தம் குழந்தைகளைத் தழுவி மகிழ்வது உடலுக்கு இன்பத்தையும், அந்தக் குழந்தைகளின் மழலை மொழி கேட்பது செவிக்கு இன்பத்தையும் வழங்கும்.
+ஆய்ந்தறிந்து செய்து முடிக்கும் ஆற்றல் உள்ளவர்களை அல்லாமல் வேறொருவரைச் சிறந்தவர் எனக் கருதி ஒரு செயலில் ஈ.டுபடுத்தக் கூடாது.
 
 **Meaning (English):**  
-The touch of children gives pleasure to the body, and the hearing of their words, pleasure to the ear.
+(A king’s) work can only be accomplished by a man of wisdom and patient endurance; it is not of a nature to be given to one from mere personal attachment.
 
 
 ## Who am I?

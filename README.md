@@ -1,22 +1,30 @@
 <div align="left">
 
-> "**அறிந்தாற்றிச் செய்கிற்பாற்கு அல்லால் வினைதான்**  
-> **சிறந்தானென்று ஏவற்பாற் றன்று.**" — *குறள் 515*
+> "**நோதல் எவன்மற்று நொந்தாரென்று அஃதறியும்**  
+> **காதலர் இல்லா வழி.**" — *குறள் 1308*
 
 </div>
 
 **பொருள்:**  
-ஆய்ந்தறிந்து செய்து முடிக்கும் ஆற்றல் உள்ளவர்களை அல்லாமல் வேறொருவரைச் சிறந்தவர் எனக் கருதி ஒரு செயலில் ஈ.டுபடுத்தக் கூடாது.
+நம்மை நினைத்தல்லவோ வருந்துகிறார் என்பதை உணர்ந்திடும் காதலர் இல்லாத போது வருந்துவதால் என்ன பயன்?.
 
 **Meaning (English):**  
-(A king’s) work can only be accomplished by a man of wisdom and patient endurance; it is not of a nature to be given to one from mere personal attachment.
+What avails sorrow when I am without a wife who can understand the cause of my sorrow?
 
 
-## Who am I?
-
+## 
+### Who am I?
 Hi! I'm Kishgi - Software Engineering undergraduate passionate about DevOps and DevSecOps.  
-Focused on building reliable CI/CD pipelines and automating workflows.  
-Currently learning cloud technologies and infrastructure automation.
+- 🔧 Passionate about **DevOps, Cloud, and Infrastructure Automation**  
+- ⚡ Focused on building **reliable CI/CD pipelines** and automating workflows   
+- 💻 Exploring **cloud-native solutions** and **secure deployment practices** 
+
+### Tools of my trade?
+- **DevOps:** Docker, Kubernetes, Ansible, Terraform, Jenkins, GitHub Actions, GitLab 
+- **DevSecOps:** SonarQube, Trivy, Prometheus, Grafana 
+- **Cloud:** AWS, Azure
+- **Programming & Scripting:** Python, Bash, JavaScript  
+
 
 [![](https://img.shields.io/badge/linkedin-0a66c2)](http://linkedin.com/in/kishgi) [![](https://img.shields.io/badge/portfolio-8A2BE2)](http://kishgi.vercel.app)
 

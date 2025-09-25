@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நோதல் எவன்மற்று நொந்தாரென்று அஃதறியும்**  
-> **காதலர் இல்லா வழி.**" — *குறள் 1308*
+> "**கேடும் பெருக்கமும் இல்லல்ல நெஞ்சத்துக்**  
+> **கோடாமை சான்றோர்க் கணி.**" — *குறள் 115*
 
 </div>
 
 **பொருள்:**  
-நம்மை நினைத்தல்லவோ வருந்துகிறார் என்பதை உணர்ந்திடும் காதலர் இல்லாத போது வருந்துவதால் என்ன பயன்?.
+ஒருவர்க்கு வாழ்வும், தாழ்வும் உலக இயற்கை; அந்த இரு நிலைமையிலும் நடுவுநிலையாக இருந்து உறுதி காட்டுவதே பெரியோர்க்கு அழகாகும்.
 
 **Meaning (English):**  
-What avails sorrow when I am without a wife who can understand the cause of my sorrow?
+Loss and gain come not without cause; it is the ornament of the wise to preserve evenness of mind (under both).
 
 
 ## 

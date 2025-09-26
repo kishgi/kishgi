@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கேடும் பெருக்கமும் இல்லல்ல நெஞ்சத்துக்**  
-> **கோடாமை சான்றோர்க் கணி.**" — *குறள் 115*
+> "**கடுஞ்சொல்லன் கண்ணிலன் ஆயின் நெடுஞ்செல்வம்**  
+> **நீடின்றி ஆங்கே கெடும்.**" — *குறள் 566*
 
 </div>
 
 **பொருள்:**  
-ஒருவர்க்கு வாழ்வும், தாழ்வும் உலக இயற்கை; அந்த இரு நிலைமையிலும் நடுவுநிலையாக இருந்து உறுதி காட்டுவதே பெரியோர்க்கு அழகாகும்.
+கடுஞ்சொல்லும், கருணையற்ற உள்ளமும் கொண்டவர்களின் பெருஞ்செல்வம் நிலைக்காமல் அழிந்துவிடும்.
 
 **Meaning (English):**  
-Loss and gain come not without cause; it is the ornament of the wise to preserve evenness of mind (under both).
+The abundant wealth of the king whose words are harsh and whose looks are void of kindness, will instantly perish instead of abiding long, with him.
 
 
 ## 

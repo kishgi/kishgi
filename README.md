@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கடுஞ்சொல்லன் கண்ணிலன் ஆயின் நெடுஞ்செல்வம்**  
-> **நீடின்றி ஆங்கே கெடும்.**" — *குறள் 566*
+> "**புலப்பேன்கொல் புல்லுவேன் கொல்லோ கலப்பேன்கொல்**  
+> **கண்அன்ன கேளிர் விரன்.**" — *குறள் 1267*
 
 </div>
 
 **பொருள்:**  
-கடுஞ்சொல்லும், கருணையற்ற உள்ளமும் கொண்டவர்களின் பெருஞ்செல்வம் நிலைக்காமல் அழிந்துவிடும்.
+கண்ணின் மணியாம் என் காதலர் வந்தவுடன், பிரிந்திருந்த துயரின் காரணமாக அவருடன் ஊடல், கொள்வேனோ? அல்லது கட்டித் தழுவிக் கொள்வேனோ? அல்லது ஊடுதல் கூடுதல் ஆகிய இரண்டையும் இணைத்துச் செய்வேனோ? ஒன்றுமே புரியவில்லையே எனக்கு; அந்த இன்பத்தை நினைக்கும்போது.
 
 **Meaning (English):**  
-The abundant wealth of the king whose words are harsh and whose looks are void of kindness, will instantly perish instead of abiding long, with him.
+On the return of him who is as dear as my eyes, am I displeased or am I to embrace (him); or am I to do both?
 
 
 ## 

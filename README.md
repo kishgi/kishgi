@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**விழுப்பேற்றின் அஃதொப்பது இல்லையார் மாட்டும்**  
-> **அழுக்காற்றின் அன்மை பெறின்.**" — *குறள் 162*
+> "**சொற்கோட்டம் இல்லது செப்பம் ஒருதலையா**  
+> **உட்கோட்டம் இன்மை பெறின்.**" — *குறள் 119*
 
 </div>
 
 **பொருள்:**  
-யாரிடமும் பொறாமை கொள்ளாத பண்பு ஒருவர்க்கு வாய்க்கப் பெறுமேயானால் அதற்கு மேலான பேறு அவருக்கு வேறு எதுவுமில்லை.
+நேர்மையும் நெஞ்சுறுதியும் ஒருவர்க்கு இருந்தால் அவரது சொல்லில் நீதியும் நியாயமும் இருக்கும். அதற்குப் பெயர்தான் நடுவுநிலைமை.
 
 **Meaning (English):**  
-Amongst all attainable excellences there is none equal to that of being free from envy towords others.
+Freedom from obliquity of speech is rectitude, if there be (corresponding) freedom from bias of mind.
 
 
 ## 

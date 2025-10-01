@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கேட்பினுங் கேளாத் தகையவே கேள்வியால்**  
-> **தோட்கப் படாத செவி.**" — *குறள் 418*
+> "**இன்பம் இடையறா தீண்டும் அவாவென்னும்**  
+> **துன்பத்துள் துன்பங் கெடின்.**" — *குறள் 369*
 
 </div>
 
 **பொருள்:**  
-இயற்கையாகவே கேட்கக்கூடிய காதுகளாக இருந்தாலும் அவை நல்லோர் உரைகளைக் கேட்க மறுத்தால் செவிட்டுக் காதுகள் என்றே கூறப்படும்.
+பெருந்துன்பம் தரக்கூடிய பேராசை ஒழிந்தால் வாழ்வில் இன்பம் விடாமல் தொடரும்.
 
 **Meaning (English):**  
-The ear which has not been bored by instruction, although it hears, is deaf.
+Even while in this body, joy will never depart (from the mind,in which) desire, that sorrow of sorrows, has been destroyed.
 
 
 ## 

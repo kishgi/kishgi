@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இன்பம் இடையறா தீண்டும் அவாவென்னும்**  
-> **துன்பத்துள் துன்பங் கெடின்.**" — *குறள் 369*
+> "**கண்ணிற்கு அணிகலம் கண்ணோட்டம் அஃதின்றேல்**  
+> **புண்ணென்று உணரப் படும்**" — *குறள் 575*
 
 </div>
 
 **பொருள்:**  
-பெருந்துன்பம் தரக்கூடிய பேராசை ஒழிந்தால் வாழ்வில் இன்பம் விடாமல் தொடரும்.
+கருணையுள்ளம் கொண்டவருடைய கண்ணே கண் என்று கூறப்படும். இல்லையானால் அது கண் அல்ல; புண்.
 
 **Meaning (English):**  
-Even while in this body, joy will never depart (from the mind,in which) desire, that sorrow of sorrows, has been destroyed.
+Kind looks are the ornaments of the eyes; without these they will be considered (by the wise) to be merely two sores.
 
 
 ## 

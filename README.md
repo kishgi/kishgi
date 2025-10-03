@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கண்ணிற்கு அணிகலம் கண்ணோட்டம் அஃதின்றேல்**  
-> **புண்ணென்று உணரப் படும்**" — *குறள் 575*
+> "**பிறன்பழி கூறுவான் தன்பழி யுள்ளும்**  
+> **திறன்தெரிந்து கூறப் படும்.**" — *குறள் 186*
 
 </div>
 
 **பொருள்:**  
-கருணையுள்ளம் கொண்டவருடைய கண்ணே கண் என்று கூறப்படும். இல்லையானால் அது கண் அல்ல; புண்.
+பிறர்மீது ஒருவன் புறங்கூறித் திரிகிறான் என்றால் அவனது பழிச் செயல்களை ஆராய்ந்து அவற்றில் கொடுமையானவைகளை அவன் மீது கூற நேரிடும்.
 
 **Meaning (English):**  
-Kind looks are the ornaments of the eyes; without these they will be considered (by the wise) to be merely two sores.
+The character of the faults of that man who publishes abroad the faults of others will be sought out and published.
 
 
 ## 

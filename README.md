@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பிறன்பழி கூறுவான் தன்பழி யுள்ளும்**  
-> **திறன்தெரிந்து கூறப் படும்.**" — *குறள் 186*
+> "**தினைத்துணையாங் குற்றம் வரினும் பனைத்துணையாக்**  
+> **கொள்வர் பழிநாணு வார்.**" — *குறள் 433*
 
 </div>
 
 **பொருள்:**  
-பிறர்மீது ஒருவன் புறங்கூறித் திரிகிறான் என்றால் அவனது பழிச் செயல்களை ஆராய்ந்து அவற்றில் கொடுமையானவைகளை அவன் மீது கூற நேரிடும்.
+பழிக்கு நாணுகின்றவர்கள், தினையளவு குற்றத்தையும் பனையளவாகக் கருதி, அதைச் செய்யாமல், தங்களைக் காத்துக் கொள்வார்கள்.
 
 **Meaning (English):**  
-The character of the faults of that man who publishes abroad the faults of others will be sought out and published.
+Those who fear guilt, if they commit a fault small as a millet seed, will consider it to be as large as a palm yra tree.
 
 
 ## 

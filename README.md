@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தினைத்துணையாங் குற்றம் வரினும் பனைத்துணையாக்**  
-> **கொள்வர் பழிநாணு வார்.**" — *குறள் 433*
+> "**ஊனைக் குறித்த உயிரெல்லாம் நாண்என்னும்**  
+> **நன்மை குறித்தது சால்பு.**" — *குறள் 1013*
 
 </div>
 
 **பொருள்:**  
-பழிக்கு நாணுகின்றவர்கள், தினையளவு குற்றத்தையும் பனையளவாகக் கருதி, அதைச் செய்யாமல், தங்களைக் காத்துக் கொள்வார்கள்.
+உடலுடன் இணைந்தே உயிர் இருப்பது போல், மாண்பு என்பது நாண உணர்வுடன் இணைந்து இருப்பதேயாகும்.
 
 **Meaning (English):**  
-Those who fear guilt, if they commit a fault small as a millet seed, will consider it to be as large as a palm yra tree.
+As the body is the abode of the spirit, so the excellence of modesty is the abode of perfection.
 
 
 ## 

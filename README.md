@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஊனைக் குறித்த உயிரெல்லாம் நாண்என்னும்**  
-> **நன்மை குறித்தது சால்பு.**" — *குறள் 1013*
+> "**பெரிதினிது பேதையார் கேண்மை பிரிவின்கண்**  
+> **பீழை தருவதொன் றில்.**" — *குறள் 839*
 
 </div>
 
 **பொருள்:**  
-உடலுடன் இணைந்தே உயிர் இருப்பது போல், மாண்பு என்பது நாண உணர்வுடன் இணைந்து இருப்பதேயாகும்.
+அறிவற்ற பேதைகளுடன் கொள்ளும் நட்பு மிகவும் இனிமையானது; ஏனென்றால் அவர்களிடமிருந்து புரியும்போது எந்தத் துன்பமும் ஏற்படுவதில்லை.
 
 **Meaning (English):**  
-As the body is the abode of the spirit, so the excellence of modesty is the abode of perfection.
+The friendship between fools is exceedingly delightful (to each other): for at parting there will be nothing to cause them pain.
 
 
 ## 

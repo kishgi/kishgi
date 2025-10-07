@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பெரிதினிது பேதையார் கேண்மை பிரிவின்கண்**  
-> **பீழை தருவதொன் றில்.**" — *குறள் 839*
+> "**கற்க கசடறக் கற்பவை கற்றபின்**  
+> **நிற்க அதற்குத் தக.**" — *குறள் 391*
 
 </div>
 
 **பொருள்:**  
-அறிவற்ற பேதைகளுடன் கொள்ளும் நட்பு மிகவும் இனிமையானது; ஏனென்றால் அவர்களிடமிருந்து புரியும்போது எந்தத் துன்பமும் ஏற்படுவதில்லை.
+பிழை இல்லாதவற்றைத் தனது குறைகள் நீங்குமளவுக்குக் கற்றுக்கொள்ள வேண்டும். கற்ற பிறகு அதன்படி நடக்கவேண்டும்.
 
 **Meaning (English):**  
-The friendship between fools is exceedingly delightful (to each other): for at parting there will be nothing to cause them pain.
+Let a man learn thoroughly whatever he may learn, and let his conduct be worthy of his learning.
 
 
 ## 

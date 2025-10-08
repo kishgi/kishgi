@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கற்க கசடறக் கற்பவை கற்றபின்**  
-> **நிற்க அதற்குத் தக.**" — *குறள் 391*
+> "**இன்நம்யுள் இன்மை விருந்தொரால் வன்மையுள்**  
+> **வன்மை மடவார்ப் பொறை.**" — *குறள் 153*
 
 </div>
 
 **பொருள்:**  
-பிழை இல்லாதவற்றைத் தனது குறைகள் நீங்குமளவுக்குக் கற்றுக்கொள்ள வேண்டும். கற்ற பிறகு அதன்படி நடக்கவேண்டும்.
+வறுமையிலும் கொடிய வறுமை, வந்த விருந்தினரை வரவேற்க முடியாதது. அதைப் போல வலிமையிலேயே பெரிய வலிமை அறிவிலிகளின் செயலைப் பொறுத்துக் கொள்வது.
 
 **Meaning (English):**  
-Let a man learn thoroughly whatever he may learn, and let his conduct be worthy of his learning.
+To neglect hospitality is poverty of poverty. To bear with the ignorant is might of might.
 
 
 ## 

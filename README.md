@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இன்நம்யுள் இன்மை விருந்தொரால் வன்மையுள்**  
-> **வன்மை மடவார்ப் பொறை.**" — *குறள் 153*
+> "**மருந்தாகித் தப்பா மரத்தற்றால் செல்வம்**  
+> **பெருந்தகை யான்கண் படின்.**" — *குறள் 217*
 
 </div>
 
 **பொருள்:**  
-வறுமையிலும் கொடிய வறுமை, வந்த விருந்தினரை வரவேற்க முடியாதது. அதைப் போல வலிமையிலேயே பெரிய வலிமை அறிவிலிகளின் செயலைப் பொறுத்துக் கொள்வது.
+பிறருக்கு உதவிடும் பெருந்தன்மையாம் ஒப்புரவு உடையவனிடம், செல்வம் சேர்ந்தால் அது ஒரு நல்ல மரத்தின் எல்லா உறுப்புகளும் மருந்தாகப் பயன்படுவது போன்றதாகும்.
 
 **Meaning (English):**  
-To neglect hospitality is poverty of poverty. To bear with the ignorant is might of might.
+If wealth be in the possession of a man who has the great excellence (of benevolence), it is like a tree which as a medicine is an infallible cure for disease.
 
 
 ## 

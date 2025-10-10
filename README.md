@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மருந்தாகித் தப்பா மரத்தற்றால் செல்வம்**  
-> **பெருந்தகை யான்கண் படின்.**" — *குறள் 217*
+> "**பேதைமை என்பதொன்று யாதெனின் ஏதங்கொண்டு**  
+> **ஊதியம் போக விடல்.**" — *குறள் 831*
 
 </div>
 
 **பொருள்:**  
-பிறருக்கு உதவிடும் பெருந்தன்மையாம் ஒப்புரவு உடையவனிடம், செல்வம் சேர்ந்தால் அது ஒரு நல்ல மரத்தின் எல்லா உறுப்புகளும் மருந்தாகப் பயன்படுவது போன்றதாகும்.
+கேடு விளைவிப்பது எது? நன்மை தருவது எது? என்று தெளிவடையாமல் நன்மையை விடுத்துத் தீமையை நாடுவதே பேதைமை என்பதற்கான எடுத்துக்காட்டாகும்.
 
 **Meaning (English):**  
-If wealth be in the possession of a man who has the great excellence (of benevolence), it is like a tree which as a medicine is an infallible cure for disease.
+Folly is one (of the chief defects); it is that which (makes one) incur loss and forego gain.
 
 
 ## 

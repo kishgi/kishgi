@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கண்ணோட்டம் என்னும் கழிபெருங் காரிகை**  
-> **உண்மையான் உண்டிவ் வுலகு.**" — *குறள் 571*
+> "**கொல்லான் புலாலை மறுத்தானைக் கைகூப்பி**  
+> **எல்லா உயிருந் தொழும்.**" — *குறள் 260*
 
 </div>
 
 **பொருள்:**  
-இந்த உலகம், அன்பும் இரக்கமும் இணைந்த கண்ணோட்டம் எனப்படுகிற பெரும் அழகைக் கொண்டவர்கள் இருப்பதால்தான் பெருமை அடைகிறது.
+புலால் உண்ணாதவர்களையும், அதற்காக உயிர்களைக் கொல்லாதவர்களையும் எல்லா உயிரினங்களும் வணங்கி வாழ்த்தும்.
 
 **Meaning (English):**  
-The world exists through that greatest ornament (of princes), a gracious demeanour.
+All creatures will join their hands together, and worship him who has never taken away life, nor eaten flesh.
 
 
 ## 

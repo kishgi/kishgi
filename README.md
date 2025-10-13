@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கொல்லான் புலாலை மறுத்தானைக் கைகூப்பி**  
-> **எல்லா உயிருந் தொழும்.**" — *குறள் 260*
+> "**சொல்லுதல் யார்க்கும் எளிய அரியவாம்**  
+> **சொல்லிய வண்ணம் செயல்.**" — *குறள் 664*
 
 </div>
 
 **பொருள்:**  
-புலால் உண்ணாதவர்களையும், அதற்காக உயிர்களைக் கொல்லாதவர்களையும் எல்லா உயிரினங்களும் வணங்கி வாழ்த்தும்.
+சொல்லுவது எல்லோருக்கும் எளிது; சொல்லியதைச் செய்து முடிப்பதுதான் கடினம்.
 
 **Meaning (English):**  
-All creatures will join their hands together, and worship him who has never taken away life, nor eaten flesh.
+To say (how an act is to be performed) is (indeed) easy for any one; but far dificult it is to do according to what has been said.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சொல்லுதல் யார்க்கும் எளிய அரியவாம்**  
-> **சொல்லிய வண்ணம் செயல்.**" — *குறள் 664*
+> "**செய்க பொருளைச் செறுநர் செருக்கறுக்கும்**  
+> **எஃகதனிற் கூரிய தில்.**" — *குறள் 759*
 
 </div>
 
 **பொருள்:**  
-சொல்லுவது எல்லோருக்கும் எளிது; சொல்லியதைச் செய்து முடிப்பதுதான் கடினம்.
+பகைவரின் செருக்கை அழிக்கும் தகுதியான கருவி பொருளைத் தவிர வேறொன்றும் இல்லாததால் அதனைச் சேமிக்க வேண்டியுள்ளது.
 
 **Meaning (English):**  
-To say (how an act is to be performed) is (indeed) easy for any one; but far dificult it is to do according to what has been said.
+Accumulate wealth; it will destroy the arrogance of (your) foes; there is no weapon sharper than it.
 
 
 ## 

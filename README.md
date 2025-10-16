@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கண்ணின் துனித்தே கலங்கினாள் புல்லுதல்**  
-> **என்னினும் தான்விதுப் புற்று.**" — *குறள் 1290*
+> "**உடைமையுள் இன்மை விருந்தோம்பல் ஓம்பா**  
+> **மடமை மடவார்கண் உண்டு.**" — *குறள் 89*
 
 </div>
 
 **பொருள்:**  
-விழிகளால் ஊடலை வெளியிட்டவள், கூடித் தழுவுவதில் என்னைக் காட்டிலும் விரைந்து செயல்பட்டு என்னோடு கலந்து விட்டாள்.
+விருந்தினரை வரவேற்றுப் போற்றத் தெரியாத அறிவற்றவர்கள் எவ்வளவு பணம் படைத்தவர்களாக இருந்தாலும் தரித்திரம் பிடித்தவர்களாகவே கருதப்படுவார்கள்.
 
 **Meaning (English):**  
-She once feigned dislike in her eyes, but the warmth of her embrace exceeded my own.
+That stupidity which excercises no hospitality is poverty in the midst of wealth. It is the property of the stupid.
 
 
 ## 

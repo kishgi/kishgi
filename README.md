@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உடைமையுள் இன்மை விருந்தோம்பல் ஓம்பா**  
-> **மடமை மடவார்கண் உண்டு.**" — *குறள் 89*
+> "**எழுமை எழுபிறப்பும் உள்ளுவர் தங்கண்**  
+> **விழுமந் துடைத்தவர் நட்பு.**" — *குறள் 107*
 
 </div>
 
 **பொருள்:**  
-விருந்தினரை வரவேற்றுப் போற்றத் தெரியாத அறிவற்றவர்கள் எவ்வளவு பணம் படைத்தவர்களாக இருந்தாலும் தரித்திரம் பிடித்தவர்களாகவே கருதப்படுவார்கள்.
+ஏழேழு தலைமுறைக்கு என்றும் ஏழேழு பிறவிக்கு என்றும் மிகைப்படுத்திச் சொல்வதுபோல, ஒருவருடைய துன்பத்தைப் போக்கியவரின் தூய்மையான நட்பை நினைத்துப் போற்றுவதற்குக் கால எல்லையே கிடையாது.
 
 **Meaning (English):**  
-That stupidity which excercises no hospitality is poverty in the midst of wealth. It is the property of the stupid.
+(The wise) will remember throughout their seven-fold births the love of those who have wiped away their afliction.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**எழுமை எழுபிறப்பும் உள்ளுவர் தங்கண்**  
-> **விழுமந் துடைத்தவர் நட்பு.**" — *குறள் 107*
+> "**நத்தம்போல் கேடும் உளதாகும் சாக்காடும்**  
+> **வித்தகர்க் கல்லால் அரிது.**" — *குறள் 235*
 
 </div>
 
 **பொருள்:**  
-ஏழேழு தலைமுறைக்கு என்றும் ஏழேழு பிறவிக்கு என்றும் மிகைப்படுத்திச் சொல்வதுபோல, ஒருவருடைய துன்பத்தைப் போக்கியவரின் தூய்மையான நட்பை நினைத்துப் போற்றுவதற்குக் கால எல்லையே கிடையாது.
+துன்பங்களுக்கிடையேகூட அவற்றைத் தாங்கும் வலிமையால் தமது புகழை வளர்த்துக் கொள்வதும், தமது சாவிலும்கூடப் புகழை நிலை நாட்டுவதும் இயல்பான ஆற்றலுடையவருக்கே உரிய செயலாகும்.
 
 **Meaning (English):**  
-(The wise) will remember throughout their seven-fold births the love of those who have wiped away their afliction.
+Prosperity to the body of fame, resulting in poverty to the body of flesh and the stability to the former arising from the death of the latter, are achievable only by the wise.
 
 
 ## 

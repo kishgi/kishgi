@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நத்தம்போல் கேடும் உளதாகும் சாக்காடும்**  
-> **வித்தகர்க் கல்லால் அரிது.**" — *குறள் 235*
+> "**இரத்தலின் இன்னாது மன்ற நிரப்பிய**  
+> **தாமே தமியர் உணல்.**" — *குறள் 229*
 
 </div>
 
 **பொருள்:**  
-துன்பங்களுக்கிடையேகூட அவற்றைத் தாங்கும் வலிமையால் தமது புகழை வளர்த்துக் கொள்வதும், தமது சாவிலும்கூடப் புகழை நிலை நாட்டுவதும் இயல்பான ஆற்றலுடையவருக்கே உரிய செயலாகும்.
+பிறர்க்கு ஈ.வதால் குறையக் கூடுமென்று, குவித்து வைத்துள்ளதைத் தாமே உண்ணுவது என்பது கையேந்தி இரந்து நிற்பதைக் காட்டிலும் கொடுமையானது.
 
 **Meaning (English):**  
-Prosperity to the body of fame, resulting in poverty to the body of flesh and the stability to the former arising from the death of the latter, are achievable only by the wise.
+Solitary and unshared eating for the sake of filling up one’s own riches is certainly much more unpleasant than begging.
 
 
 ## 

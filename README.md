@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இரத்தலின் இன்னாது மன்ற நிரப்பிய**  
-> **தாமே தமியர் உணல்.**" — *குறள் 229*
+> "**நல்லினத்தி னூங்குந் துணையில்லை தீயினத்தின்**  
+> **அல்லற் படுப்பதூஉம் இல்.**" — *குறள் 460*
 
 </div>
 
 **பொருள்:**  
-பிறர்க்கு ஈ.வதால் குறையக் கூடுமென்று, குவித்து வைத்துள்ளதைத் தாமே உண்ணுவது என்பது கையேந்தி இரந்து நிற்பதைக் காட்டிலும் கொடுமையானது.
+நல்ல இனத்தைக் காட்டிலும் துணையாக இருப்பதும், தீய இனத்தைக் காட்டிலும் துன்பம் தரக்கூடியதும் எதுவுமே இல்லை.
 
 **Meaning (English):**  
-Solitary and unshared eating for the sake of filling up one’s own riches is certainly much more unpleasant than begging.
+There is no greater help than the company of the good; there is no greater source of sorrow than the company of the wicked.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நல்லினத்தி னூங்குந் துணையில்லை தீயினத்தின்**  
-> **அல்லற் படுப்பதூஉம் இல்.**" — *குறள் 460*
+> "**இன்சொல் இனிதீன்றல் காண்பான் எவன்கொலோ**  
+> **வன்சொல் வழங்கு வது?**" — *குறள் 99*
 
 </div>
 
 **பொருள்:**  
-நல்ல இனத்தைக் காட்டிலும் துணையாக இருப்பதும், தீய இனத்தைக் காட்டிலும் துன்பம் தரக்கூடியதும் எதுவுமே இல்லை.
+இனிய சொற்கள் இன்பத்தை வழங்கும் என்பதை உணர்ந்தவர் அதற்கு மாறாக எதற்காகக் கடுஞ் சொற்களைப் பயன்படுத்த வேண்டும்?.
 
 **Meaning (English):**  
-There is no greater help than the company of the good; there is no greater source of sorrow than the company of the wicked.
+Why does he use harsh words, who sees the pleasure which sweet speech yields ?
 
 
 ## 

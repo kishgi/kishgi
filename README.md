@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பெருமை யுடையவர் ஆற்றுவார் ஆற்றின்**  
-> **அருமை உடைய செயல்.**" — *குறள் 975*
+> "**ஊடல் உணங்க விடுவாரோடு என்நெஞ்சம்**  
+> **கூடுவேம் என்பது அவா.**" — *குறள் 1310*
 
 </div>
 
 **பொருள்:**  
-அரிய செயல்களை அவற்றுக்கு உரிய முறையான வழியில் செய்து முடிக்கும் திறமையுடையவர்கள் பெருமைக்குரியவராவார்கள்.
+ஊடலைத் தணிக்காமல் வாடவிட்டு வேடிக்கை பார்ப்பவருடன் கூடியிருப்போம் என்று என் நெஞ்சம் துடிப்பதற்கு அதன் அடங்காத ஆசையே காரணம்.
 
 **Meaning (English):**  
-(Though reduced) the great will be able to perform, in the proper way, deeds dificult (for others to do).
+It is nothing but strong desire that makes her mind unite with me who can leave her to her own dislike.
 
 
 ## 

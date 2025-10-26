@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஊடல் உணங்க விடுவாரோடு என்நெஞ்சம்**  
-> **கூடுவேம் என்பது அவா.**" — *குறள் 1310*
+> "**தொகச் சொல்லித் தூவாத நீக்கி நகச்சொல்லி**  
+> **நன்றி பயப்பதாந் தூது.**" — *குறள் 685*
 
 </div>
 
 **பொருள்:**  
-ஊடலைத் தணிக்காமல் வாடவிட்டு வேடிக்கை பார்ப்பவருடன் கூடியிருப்போம் என்று என் நெஞ்சம் துடிப்பதற்கு அதன் அடங்காத ஆசையே காரணம்.
+சினத்தைத் தூண்டாமல் மகிழத்தக்க அளவுக்குச் செய்திகளைத் தொகுத்தும், தேவையற்ற செய்திகளை ஒதுக்கியும், நல்ல பயனளிக்கும் விதமாகச் சொல்லுவதே சிறந்த தூதருக்கு அழகாகும்.
 
 **Meaning (English):**  
-It is nothing but strong desire that makes her mind unite with me who can leave her to her own dislike.
+He is an ambassador who (in the presence of foreign rulers) speaks briefly, avoids harshness, talks so as to make them smile, and thus brings good (to his own sovereign).
 
 
 ## 

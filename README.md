@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தொகச் சொல்லித் தூவாத நீக்கி நகச்சொல்லி**  
-> **நன்றி பயப்பதாந் தூது.**" — *குறள் 685*
+> "**தேரான் பிறனைத் தெளிந்தான் வழிமுறை**  
+> **தீரா இடும்பை தரும்.**" — *குறள் 508*
 
 </div>
 
 **பொருள்:**  
-சினத்தைத் தூண்டாமல் மகிழத்தக்க அளவுக்குச் செய்திகளைத் தொகுத்தும், தேவையற்ற செய்திகளை ஒதுக்கியும், நல்ல பயனளிக்கும் விதமாகச் சொல்லுவதே சிறந்த தூதருக்கு அழகாகும்.
+ஆராய்ந்து பார்க்காமல் ஒருவரைத் துணையாகத் தேர்வு செய்து, அமர்த்திக் கொண்டால் அவரால் வருங்காலத் தலைமுறையினர்க்கும் நீங்காத துன்பம் விளையும்.
 
 **Meaning (English):**  
-He is an ambassador who (in the presence of foreign rulers) speaks briefly, avoids harshness, talks so as to make them smile, and thus brings good (to his own sovereign).
+Sorrow that will not leave even his posterity will come upon him chooses a stranger whose character he has not known.
 
 
 ## 

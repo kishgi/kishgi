@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தேரான் பிறனைத் தெளிந்தான் வழிமுறை**  
-> **தீரா இடும்பை தரும்.**" — *குறள் 508*
+> "**நகைவகைய ராகிய நட்பின் பகைவரால்**  
+> **பத்தடுத்த கோடி உறும்.**" — *குறள் 817*
 
 </div>
 
 **பொருள்:**  
-ஆராய்ந்து பார்க்காமல் ஒருவரைத் துணையாகத் தேர்வு செய்து, அமர்த்திக் கொண்டால் அவரால் வருங்காலத் தலைமுறையினர்க்கும் நீங்காத துன்பம் விளையும்.
+சிரித்துப் பேசி நடிப்பவர்களின் நட்பைக் காட்டிலும் பகைவர்களால் ஏற்படும் துன்பம் பத்துக்கோடி மடங்கு நன்மையானது என்று கருதப்படும்.
 
 **Meaning (English):**  
-Sorrow that will not leave even his posterity will come upon him chooses a stranger whose character he has not known.
+What comes from enemies is a hundred million times more profitable than what comes from the friendship of those who cause only laughter.
 
 
 ## 

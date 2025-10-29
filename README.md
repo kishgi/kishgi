@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நகைவகைய ராகிய நட்பின் பகைவரால்**  
-> **பத்தடுத்த கோடி உறும்.**" — *குறள் 817*
+> "**தன்குற்றம் நீக்கிப் பிறர்குற்றங் காண்கிற்பின்**  
+> **என்குற்ற மாகும் இறைக்கு?**" — *குறள் 436*
 
 </div>
 
 **பொருள்:**  
-சிரித்துப் பேசி நடிப்பவர்களின் நட்பைக் காட்டிலும் பகைவர்களால் ஏற்படும் துன்பம் பத்துக்கோடி மடங்கு நன்மையானது என்று கருதப்படும்.
+முதலில் தனக்குள்ள குறையை நீக்கிக் கொண்டு அதன் பின்னர் பிறர் குறையைக் கண்டு சொல்லும் தலைவனுக்கு என்ன குறை நேரும்?.
 
 **Meaning (English):**  
-What comes from enemies is a hundred million times more profitable than what comes from the friendship of those who cause only laughter.
+What fault will remain in the king who has put away his own evils, and looks after the evils of others.
 
 
 ## 

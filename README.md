@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**துறைவன் துறந்தமை தூற்றாகொல் முன்கை**  
-> **இறைஇறவா நின்ற வளை.**" — *குறள் 1157*
+> "**அறங்கூறான் அல்ல செயினும் ஒருவன்**  
+> **புறங்கூறான் என்றல் இனிது.**" — *குறள் 181*
 
 </div>
 
 **பொருள்:**  
-என்னை விட்டுத் தலைவன் பிரிந்து சென்றுள்ள செய்தியை என் முன்கை மூட்டிலிருந்து கழன்று விழும் வளையல் ஊரறியத் தூற்றித் தெரிவித்து விடுமே!.
+அறநெறியைப் போற்றாமலும், அவ்வழியில் நடக்காமலும்கூட இருக்கின்ற சிலர் மற்றவர்களைப் பற்றிப் புறம் பேசாமல் இருந்தால், அது அவர்களுக்கு நல்லது.
 
 **Meaning (English):**  
-Do not the rings that begin to slide down my fingers forebode the separation of my lord ?
+One, who does good deeds much beyond what books on virtue prescribe, will benefit more from never backbiting anyone.
 
 
 ## 

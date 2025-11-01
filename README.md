@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறங்கூறான் அல்ல செயினும் ஒருவன்**  
-> **புறங்கூறான் என்றல் இனிது.**" — *குறள் 181*
+> "**நிறையுடையேன் என்பேன்மன் யானோஎன் காமம்**  
+> **மறையிறந்து மன்று படும்.**" — *குறள் 1254*
 
 </div>
 
 **பொருள்:**  
-அறநெறியைப் போற்றாமலும், அவ்வழியில் நடக்காமலும்கூட இருக்கின்ற சிலர் மற்றவர்களைப் பற்றிப் புறம் பேசாமல் இருந்தால், அது அவர்களுக்கு நல்லது.
+மன உறுதிகொண்டவள் நான் என்பதே என் நம்பிக்கை; ஆனால் என் காதல், நான் மறைப்பதையும் மீறிக்கொண்டு மன்றத்திலேயே வெளிப்பட்டு விடுகிறதே.
 
 **Meaning (English):**  
-One, who does good deeds much beyond what books on virtue prescribe, will benefit more from never backbiting anyone.
+I say I would be firm, but alas, my malady breaks out from its concealment and appears in public.
 
 
 ## 

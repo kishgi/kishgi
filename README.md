@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நிறையுடையேன் என்பேன்மன் யானோஎன் காமம்**  
-> **மறையிறந்து மன்று படும்.**" — *குறள் 1254*
+> "**தேரான் பிறனைத் தெளிந்தான் வழிமுறை**  
+> **தீரா இடும்பை தரும்.**" — *குறள் 508*
 
 </div>
 
 **பொருள்:**  
-மன உறுதிகொண்டவள் நான் என்பதே என் நம்பிக்கை; ஆனால் என் காதல், நான் மறைப்பதையும் மீறிக்கொண்டு மன்றத்திலேயே வெளிப்பட்டு விடுகிறதே.
+ஆராய்ந்து பார்க்காமல் ஒருவரைத் துணையாகத் தேர்வு செய்து, அமர்த்திக் கொண்டால் அவரால் வருங்காலத் தலைமுறையினர்க்கும் நீங்காத துன்பம் விளையும்.
 
 **Meaning (English):**  
-I say I would be firm, but alas, my malady breaks out from its concealment and appears in public.
+Sorrow that will not leave even his posterity will come upon him chooses a stranger whose character he has not known.
 
 
 ## 

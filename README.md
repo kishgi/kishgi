@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தேரான் பிறனைத் தெளிந்தான் வழிமுறை**  
-> **தீரா இடும்பை தரும்.**" — *குறள் 508*
+> "**இறந்தமைந்த சார்புடையர் ஆயினும் உய்யார்**  
+> **சிறந்தமைந்த சீரார் செறின்.**" — *குறள் 900*
 
 </div>
 
 **பொருள்:**  
-ஆராய்ந்து பார்க்காமல் ஒருவரைத் துணையாகத் தேர்வு செய்து, அமர்த்திக் கொண்டால் அவரால் வருங்காலத் தலைமுறையினர்க்கும் நீங்காத துன்பம் விளையும்.
+என்னதான் எல்லையற்ற வசதிவாய்ப்புகள், வலிமையான துணைகள் உடையவராக இருப்பினும், தகுதியிற் சிறந்த சான்றோரின் சினத்தை எதிர்த்துத் தப்பிப் பிழைக்க முடியாது.
 
 **Meaning (English):**  
-Sorrow that will not leave even his posterity will come upon him chooses a stranger whose character he has not known.
+Though in possession of numerous auxiliaries, they will perish who are-exposed to the wrath of the noble whose penance is boundless.
 
 
 ## 

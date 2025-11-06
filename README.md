@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**படியுடையார் பற்றமைந்தக் கண்ணும் மடியுடையார்**  
-> **மாண்பயன் எய்தல் அரிது.**" — *குறள் 606*
+> "**பெரும்பொருளால் பெட்டக்க தாகி அருங்கேட்டால்**  
+> **ஆற்ற விளைவது நாடு.**" — *குறள் 732*
 
 </div>
 
 **பொருள்:**  
-தகுதியுடையவரின் அன்புக்குப் பாத்திரமானவராக இருப்பினும் சோம்பலுடையவர்கள் பெருமை எனும் பயனை அடைவதென்பது அரிதாகும்.
+பொருள் வளம் நிறைந்ததாகவும், பிறர் போற்றத் தக்கதாகவும், கேடற்றதாகவும், நல்ல விளைச்சல் கொண்டதாகவும் அமைவதே சிறந்த நாடாகும்.
 
 **Meaning (English):**  
-It is a rare thing for the idle, even when possessed of the riches of kings who ruled over the whole earth, to derive any great benefit from it.
+A kingdom is that which is desire for its immense wealth, and which grows greatly in prosperity, being free from destructive causes.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பெரும்பொருளால் பெட்டக்க தாகி அருங்கேட்டால்**  
-> **ஆற்ற விளைவது நாடு.**" — *குறள் 732*
+> "**வித்தும் இடல்வேண்டும் கொல்லோ விருந்தோம்பி**  
+> **மிச்சில் மிசைவான் புலம்.**" — *குறள் 85*
 
 </div>
 
 **பொருள்:**  
-பொருள் வளம் நிறைந்ததாகவும், பிறர் போற்றத் தக்கதாகவும், கேடற்றதாகவும், நல்ல விளைச்சல் கொண்டதாகவும் அமைவதே சிறந்த நாடாகும்.
+விருந்தினர்க்கு முதலில் உணவளித்து மிஞ்சியதை உண்டு வாழும் பண்பாளன், தன் நிலத்திற்குரிய விதையைக்கூட விருந்தோம்பலுக்குப் பயன்படுத்தாமல் இருப்பானா?.
 
 **Meaning (English):**  
-A kingdom is that which is desire for its immense wealth, and which grows greatly in prosperity, being free from destructive causes.
+Is it necessary to sow the field of the man who, having feasted his guests, eats what may remain ?
 
 
 ## 

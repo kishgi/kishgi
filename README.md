@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வைத்தான்வாய் சான்ற பெரும்பொருள் அஃதுண்ணான்**  
-> **செத்தான் செயக்கிடந்தது இல்.**" — *குறள் 1001*
+> "**நாணொடு நல்லாண்மை பண்டுடையேன் இன்றுடையேன்**  
+> **காமுற்றார் ஏறும் மடல்.**" — *குறள் 1133*
 
 </div>
 
 **பொருள்:**  
-அடங்காத ஆசையினால் வீடு கொள்ளாத அளவுக்குச் செல்வத்தைச் சேர்த்து வைத்து அதனை அனுபவிக்காமல் செத்துப் போகிறவனுக்கு, அப்படிச் சேர்க்கப்பட்ட செல்வத்தினால் என்ன பயன்?.
+நல்ல ஆண்மையும், நாண உணர்வையும் முன்பு கொண்டிருந்த நான், இன்று அவற்றை மறந்து, காதலுக்காக மடலூர்வதை மேற்கொண்டுள்ளேன்.
 
 **Meaning (English):**  
-He who does not enjoy the immense riches he has heaped up in his house, is (to be reckoned as) dead, (for) there is nothing achieved (by him).
+Modesty and manliness were once my own; now, my own is the palmyra horse that is ridden by the lustful.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நாணொடு நல்லாண்மை பண்டுடையேன் இன்றுடையேன்**  
-> **காமுற்றார் ஏறும் மடல்.**" — *குறள் 1133*
+> "**தெருளாதான் மெய்ப்பொருள் கண்டற்றால் தேரின்**  
+> **அருளாதான் செய்யும் அறம்.**" — *குறள் 249*
 
 </div>
 
 **பொருள்:**  
-நல்ல ஆண்மையும், நாண உணர்வையும் முன்பு கொண்டிருந்த நான், இன்று அவற்றை மறந்து, காதலுக்காக மடலூர்வதை மேற்கொண்டுள்ளேன்.
+அறிவுத் தெளிவு இல்லாதவன் ஒரு நூலின் உண்மைப் பொருளைக் கண்டறிய முடியுமா? அது போலத்தான் அருள் இல்லாதவன் செய்யும் அறச்செயலும் இருக்கும்.
 
 **Meaning (English):**  
-Modesty and manliness were once my own; now, my own is the palmyra horse that is ridden by the lustful.
+f you consider, the virtue of him who is without kindness is like the perception of the true being by him who is without wisdom.
 
 
 ## 

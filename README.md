@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தெருளாதான் மெய்ப்பொருள் கண்டற்றால் தேரின்**  
-> **அருளாதான் செய்யும் அறம்.**" — *குறள் 249*
+> "**திறனல்ல தற்பிறர் செய்யினும் நோநொந்து**  
+> **அறனல்ல செய்யாமை நன்று.**" — *குறள் 157*
 
 </div>
 
 **பொருள்:**  
-அறிவுத் தெளிவு இல்லாதவன் ஒரு நூலின் உண்மைப் பொருளைக் கண்டறிய முடியுமா? அது போலத்தான் அருள் இல்லாதவன் செய்யும் அறச்செயலும் இருக்கும்.
+பிறர் செய்திடும் இழிவான காரியங்களுக்காகத் துன்பமுற்று வருந்தி, பதிலுக்கு அதே காரியங்களைச் செய்து பழி வாங்காமலிருப்பதுதான் சிறந்த பண்பாகும்.
 
 **Meaning (English):**  
-f you consider, the virtue of him who is without kindness is like the perception of the true being by him who is without wisdom.
+Though others inflict injuries on you, yet compassionating the evil (that will come upon them) it will be well not to do them anything contrary to virtue.
 
 
 ## 

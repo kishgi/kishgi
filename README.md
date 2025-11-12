@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**திறனல்ல தற்பிறர் செய்யினும் நோநொந்து**  
-> **அறனல்ல செய்யாமை நன்று.**" — *குறள் 157*
+> "**இலமென்று வெஃகுதல் செய்யார் புலம்வென்ற**  
+> **புன்மையில் காட்சி யவர்.**" — *குறள் 174*
 
 </div>
 
 **பொருள்:**  
-பிறர் செய்திடும் இழிவான காரியங்களுக்காகத் துன்பமுற்று வருந்தி, பதிலுக்கு அதே காரியங்களைச் செய்து பழி வாங்காமலிருப்பதுதான் சிறந்த பண்பாகும்.
+புலனடக்கம் வாய்ந்த தூயவர், வறுமையில் வாடும் நிலையிலேகூடப் பிறர் பொருளைக் கவர்ந்திட விரும்ப மாட்டார்.
 
 **Meaning (English):**  
-Though others inflict injuries on you, yet compassionating the evil (that will come upon them) it will be well not to do them anything contrary to virtue.
+One who is flawless and wise and has mastered all senses, will never feel ‘I’m poor’ and yearn for other’s wealth.
 
 
 ## 

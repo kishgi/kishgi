@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கடுமொழியும் கையிகந்த தண்டமும் வேந்தன்**  
-> **அடுமுரண் தேய்க்கும் அரம்.**" — *குறள் 567*
+> "**கடாஅ உருவொடு கண்ணஞ்சாது யாண்டும்**  
+> **உகாஅமை வல்லதே ஒற்று.**" — *குறள் 585*
 
 </div>
 
 **பொருள்:**  
-கடுஞ்சொல்லும், முறைகடந்த தண்டனையும் ஓர் அரசின் வலிமையைத் தேய்த்து மெலியச் செய்யும் அரம் எனும் கருவியாக அமையும்.
+சந்தேகப்பட முடியாத தோற்றத்துடனும் அப்படிச் சந்தேகப்பட்டுப் பார்ப்பவர்களுக்கு அஞ்சாமலும், என்ன நேர்ந்தாலும் மனத்தில் உள்ளதை வெளிப்படுத்தாமலும் உள்ளவர்களே ஒற்றர்களாகப் பணியாற்ற முடியும்.
 
 **Meaning (English):**  
-Severe words and excessive punishments will be a file to waste away a king’s power for destroying (his enemies).
+A spy is one who is able to assume an appearance which may create no suspicion (in the minds of others), who fears no man’s face, and who never reveals (his purpose).
 
 
 ## 

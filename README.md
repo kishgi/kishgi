@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நிழல்நீரும் இன்னாத இன்னா தமர்நீரும்**  
-> **இன்னாவாம் இன்னா செயின்.**" — *குறள் 881*
+> "**அன்புடைமை ஆன்ற குடிப்பிறத்தல் வேந்தவாம்**  
+> **பண்புடைமை தூதுரைப்பான் பண்பு.**" — *குறள் 681*
 
 </div>
 
 **பொருள்:**  
-இனிமையாகத் தெரியும் நிழலும் நீரும்கூடக் கேடு விளைவிக்கக் கூடியவையாக இருந்தால் அவை தீயவைகளாகவே கருதப்படும். அது போலவேதான் உற்றார் உறவினராக உள்ளவர்களின் உட்பகையும் ஆகும்.
+அன்பான குணமும், புகழ்வாய்ந்த குடிப்பிறப்பும், அரசினர் பாராட்டக்கூடிய நல்ல பண்பாடும் பெற்றிருப்பதே தூதருக்குரிய தகுதிகளாகும்.
 
 **Meaning (English):**  
-Shade and water are not pleasant, (if) they cause disease; so are the qualities of (one’s) relations not agreeable, (if) they cause pain.
+The qualification of an ambassador are affection (for his relations) a fitting birth, and the possession of attributes pleasing to royalty.
 
 
 ## 

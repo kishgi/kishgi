@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அன்புடைமை ஆன்ற குடிப்பிறத்தல் வேந்தவாம்**  
-> **பண்புடைமை தூதுரைப்பான் பண்பு.**" — *குறள் 681*
+> "**தீப்பால தான்பிறர்கண் செய்யற்க நோய்ப்பால**  
+> **தன்னை அடல்வேண்டா தான்.**" — *குறள் 206*
 
 </div>
 
 **பொருள்:**  
-அன்பான குணமும், புகழ்வாய்ந்த குடிப்பிறப்பும், அரசினர் பாராட்டக்கூடிய நல்ல பண்பாடும் பெற்றிருப்பதே தூதருக்குரிய தகுதிகளாகும்.
+வேதனை விளைவிக்கும் தீய செயல்கள் தன்னைத் தாக்கலாகாது என எண்ணுகிறவன் அவனும் அத்தீங்குகளைப் பிறருக்குச் செய்யாமல் இருக்க வேண்டும்.
 
 **Meaning (English):**  
-The qualification of an ambassador are affection (for his relations) a fitting birth, and the possession of attributes pleasing to royalty.
+Let him not do evil to others who desires not that sorrows should pursue him.
 
 
 ## 

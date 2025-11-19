@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தீப்பால தான்பிறர்கண் செய்யற்க நோய்ப்பால**  
-> **தன்னை அடல்வேண்டா தான்.**" — *குறள் 206*
+> "**பொய்படும் ஒன்றோ புனைபூணும் கையறியாப்**  
+> **பேதை வினைமேற் கொளின்.**" — *குறள் 836*
 
 </div>
 
 **பொருள்:**  
-வேதனை விளைவிக்கும் தீய செயல்கள் தன்னைத் தாக்கலாகாது என எண்ணுகிறவன் அவனும் அத்தீங்குகளைப் பிறருக்குச் செய்யாமல் இருக்க வேண்டும்.
+நேர்மை வழி அறியாத மூடர், மேற்கொண்ட செயலைத் தொடர முடியாமல், அதனால் அச்செயலும் கெட்டுத் தம்மையும் தண்டித்துக் கொள்வர்.
 
 **Meaning (English):**  
-Let him not do evil to others who desires not that sorrows should pursue him.
+If the fool, who knows not how to act undertakes a work, he will (certainly) fail. (But) is it all ? He will even adorn himself with fetters.
 
 
 ## 

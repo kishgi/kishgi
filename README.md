@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பொய்படும் ஒன்றோ புனைபூணும் கையறியாப்**  
-> **பேதை வினைமேற் கொளின்.**" — *குறள் 836*
+> "**நீங்கான் வெகுளி நிறையிலன் எஞ்ஞான்றும்**  
+> **யாங்கணும் யார்க்கும் எளிது.**" — *குறள் 864*
 
 </div>
 
 **பொருள்:**  
-நேர்மை வழி அறியாத மூடர், மேற்கொண்ட செயலைத் தொடர முடியாமல், அதனால் அச்செயலும் கெட்டுத் தம்மையும் தண்டித்துக் கொள்வர்.
+சினத்தையும் மனத்தையும் கட்டுப்படுத்த முடியாதவர்களை, எவர் வேண்டுமானாலும், எப்போது வேண்டுமானாலும், எங்கு வேண்டுமானாலும் எளிதில் தோற்கடித்து விடலாம்.
 
 **Meaning (English):**  
-If the fool, who knows not how to act undertakes a work, he will (certainly) fail. (But) is it all ? He will even adorn himself with fetters.
+He who neither refrains from anger nor keeps his secrets will at all times and in all places be easily conquered by all.
 
 
 ## 

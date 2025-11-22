@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஊதியம் என்பது ஒருவற்குப் பேதையார்**  
-> **கேண்மை ஒரீஇ விடல்.**" — *குறள் 797*
+> "**களவென்னும் காரறி வாண்மை அளவென்னும்**  
+> **ஆற்றல் புரிந்தார்கண்ட இல்.**" — *குறள் 287*
 
 </div>
 
 **பொருள்:**  
-ஒருவருக்குக் கிடைத்த நற்பயன் என்பது அவர் அறிவில்லாத ஒருவருடன் கொண்டிருந்த நட்பைத் துறந்து விடுவதேயாகும்.
+அளவறிந்து வாழ்க்கை நடத்துகிற ஆற்றலுடையவர்களிடம், களவாடுதல் எனும் சூதுமதி கிடையாது.
 
 **Meaning (English):**  
-It is indead a gain for one to renounce the friendship of fools.
+That black-knowledge which is called fraud, is not in those who desire that greatness which is called rectitude.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**களவென்னும் காரறி வாண்மை அளவென்னும்**  
-> **ஆற்றல் புரிந்தார்கண்ட இல்.**" — *குறள் 287*
+> "**ஏதிலார் ஆரத் தமர்பசிப்பர் பேதை**  
+> **பெருஞ்செல்வம் உற்றக் கடை.**" — *குறள் 837*
 
 </div>
 
 **பொருள்:**  
-அளவறிந்து வாழ்க்கை நடத்துகிற ஆற்றலுடையவர்களிடம், களவாடுதல் எனும் சூதுமதி கிடையாது.
+அறிவில்லாப் பேதைகளிடம் குவியும் செல்வம், அயலார் சுருட்டிக் கொள்ளப் பயன்படுமேயல்லாமல் பசித்திருக்கும் பாசமுள்ள சுற்றத்தாருக்குப் பயன்படாது.
 
 **Meaning (English):**  
-That black-knowledge which is called fraud, is not in those who desire that greatness which is called rectitude.
+If a fool happens to get an immense fortune, his neighbours will enjoy it while his relations starve.
 
 
 ## 

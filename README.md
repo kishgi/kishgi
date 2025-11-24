@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஏதிலார் ஆரத் தமர்பசிப்பர் பேதை**  
-> **பெருஞ்செல்வம் உற்றக் கடை.**" — *குறள் 837*
+> "**அறனறிந்து வெஃகா அறிவுடையார்ச் சேரும்**  
+> **திறன்அறிந் தாங்கே திரு.**" — *குறள் 179*
 
 </div>
 
 **பொருள்:**  
-அறிவில்லாப் பேதைகளிடம் குவியும் செல்வம், அயலார் சுருட்டிக் கொள்ளப் பயன்படுமேயல்லாமல் பசித்திருக்கும் பாசமுள்ள சுற்றத்தாருக்குப் பயன்படாது.
+பிறர் பொருளைக் கவர விரும்பாத அறநெறி உணர்ந்த அறிஞர் பெருமக்களின் ஆற்றலுக்கேற்ப அவர்களிடம் செல்வம் சேரும்.
 
 **Meaning (English):**  
-If a fool happens to get an immense fortune, his neighbours will enjoy it while his relations starve.
+Wealth will find means to bestow itself on those who, knowing the virtue of not coveting others’ property, wisely desist from it.
 
 
 ## 

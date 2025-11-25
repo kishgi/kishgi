@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறனறிந்து வெஃகா அறிவுடையார்ச் சேரும்**  
-> **திறன்அறிந் தாங்கே திரு.**" — *குறள் 179*
+> "**இல்லாளை அஞ்சுவான் அஞ்சுமற் றெஞ்ஞான்றும்**  
+> **நல்லார்க்கு நல்ல செயல்.**" — *குறள் 905*
 
 </div>
 
 **பொருள்:**  
-பிறர் பொருளைக் கவர விரும்பாத அறநெறி உணர்ந்த அறிஞர் பெருமக்களின் ஆற்றலுக்கேற்ப அவர்களிடம் செல்வம் சேரும்.
+எப்போதுமே நல்லோர்க்கு நன்மை செய்வதில் தவறு ஏற்பட்டுவிடக் கூடாதே என்று அஞ்சுகிறவன் தவறு நேராமல் கண்காணிக்கும் மனைவிக்கு அஞ்சி நடப்பான்.
 
 **Meaning (English):**  
-Wealth will find means to bestow itself on those who, knowing the virtue of not coveting others’ property, wisely desist from it.
+He that fears his wife will always be afraid of doing good deeds (even) to the good.
 
 
 ## 

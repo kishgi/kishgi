@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இல்லாளை அஞ்சுவான் அஞ்சுமற் றெஞ்ஞான்றும்**  
-> **நல்லார்க்கு நல்ல செயல்.**" — *குறள் 905*
+> "**புகழ்பட வாழாதார் தந்நோவார் தம்மை**  
+> **இகழ்வாரை நோவது எவன்?**" — *குறள் 237*
 
 </div>
 
 **பொருள்:**  
-எப்போதுமே நல்லோர்க்கு நன்மை செய்வதில் தவறு ஏற்பட்டுவிடக் கூடாதே என்று அஞ்சுகிறவன் தவறு நேராமல் கண்காணிக்கும் மனைவிக்கு அஞ்சி நடப்பான்.
+உண்மையான புகழுடன் வாழ முடியாதவர்கள், அதற்காகத் தம்மை நொந்து கொள்ள வேண்டுமே தவிரத் தமது செயல்களை இகழ்ந்து பேசுகிறவர்களை நொந்து கொள்வது எதற்காக?.
 
 **Meaning (English):**  
-He that fears his wife will always be afraid of doing good deeds (even) to the good.
+Why do those who cannot live with praise, grieve those who despise them, instead of grieving themselves for their own inability.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**புகழ்பட வாழாதார் தந்நோவார் தம்மை**  
-> **இகழ்வாரை நோவது எவன்?**" — *குறள் 237*
+> "**தூஉய்மை என்பது அவாவின்மை மற்றது**  
+> **வாஅய்மை வேண்ட வரும்.**" — *குறள் 364*
 
 </div>
 
 **பொருள்:**  
-உண்மையான புகழுடன் வாழ முடியாதவர்கள், அதற்காகத் தம்மை நொந்து கொள்ள வேண்டுமே தவிரத் தமது செயல்களை இகழ்ந்து பேசுகிறவர்களை நொந்து கொள்வது எதற்காக?.
+தூய்மை என்பது பேராசையற்ற தன்மையாகும். அத்தூய்மை வாய்மையை நாடுவோர்க்கே வாய்க்கும்.
 
 **Meaning (English):**  
-Why do those who cannot live with praise, grieve those who despise them, instead of grieving themselves for their own inability.
+Purity (of mind) consists in freedom from desire; and that (freedom from desire) is the fruit of the love of truth.
 
 
 ## 

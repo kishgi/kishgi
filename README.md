@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தூஉய்மை என்பது அவாவின்மை மற்றது**  
-> **வாஅய்மை வேண்ட வரும்.**" — *குறள் 364*
+> "**இண்ருழ்த்தும் நாறா மலரனையர் கற்றது**  
+> **உணர விரித்துரையா தார்.**" — *குறள் 650*
 
 </div>
 
 **பொருள்:**  
-தூய்மை என்பது பேராசையற்ற தன்மையாகும். அத்தூய்மை வாய்மையை நாடுவோர்க்கே வாய்க்கும்.
+கற்றதைப் பிறர் உணர்ந்து கொள்ளும் வகையில் விளக்கிச் சொல்ல முடியாதவர், கொத்தாக மலர்ந்திருந்தாலும் மணம் கமழாத மலரைப் போன்றவர்.
 
 **Meaning (English):**  
-Purity (of mind) consists in freedom from desire; and that (freedom from desire) is the fruit of the love of truth.
+Those who are unable to set forth their acquirements (before others) are like flowers blossoming in a cluster and yet without fragrance.
 
 
 ## 

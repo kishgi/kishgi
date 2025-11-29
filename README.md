@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இண்ருழ்த்தும் நாறா மலரனையர் கற்றது**  
-> **உணர விரித்துரையா தார்.**" — *குறள் 650*
+> "**அனிச்சமும் அன்னத்தின் தூவியும் மாதர்**  
+> **அடிக்கு நெருஞ்சிப் பழம்.**" — *குறள் 1120*
 
 </div>
 
 **பொருள்:**  
-கற்றதைப் பிறர் உணர்ந்து கொள்ளும் வகையில் விளக்கிச் சொல்ல முடியாதவர், கொத்தாக மலர்ந்திருந்தாலும் மணம் கமழாத மலரைப் போன்றவர்.
+அனிச்ச மலராயினும், அன்னப்பறவை இறகாயினும் இரண்டுமே நெருஞ்சி முள் தைத்தது போல் துன்புறுத்தக் கூடிய அளவுக்கு, என் காதலியின் காலடிகள்அவ்வளவு மென்மையானவை.
 
 **Meaning (English):**  
-Those who are unable to set forth their acquirements (before others) are like flowers blossoming in a cluster and yet without fragrance.
+The anicham and the feathers of the swan are to the feet of females, like the fruit of the (thorny) Nerunji.
 
 
 ## 

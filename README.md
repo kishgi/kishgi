@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கற்றீண்டு மெய்ப்பொருள் கண்டார் தலைப்படுவர்**  
-> **மற்றீண்டு வாரா நெறி.**" — *குறள் 356*
+> "**அன்பின் வழியது உயிர்நிலை அஃதிலார்க்கு**  
+> **என்புதோல் போர்த்த உடம்பு.**" — *குறள் 80*
 
 </div>
 
 **பொருள்:**  
-துறவற வாழ்வுக்குத் தகுதியுடையவராகச் செய்திடும் அனைத்தையும் கற்று, உண்மைப் பொருள் உணர்ந்து அதன்படி ஒழுகுபவர், மீண்டும் இல்லற வாழ்க்கையை விரும்ப மாட்டார்கள்.
+அன்புநெஞ்சத்தின் வழியில் இயங்குவதே உயிருள்ள உடலாகும்; இல்லையேல், அது எலும்பைத் தோல் போர்த்திய வெறும் உடலேயாகும்.
 
 **Meaning (English):**  
-They, who in this birth have learned to know the True Being, enter the road which returns not into this world.
+That body alone which is inspired with love contains a living soul: if void of it, (the body) is bone overlaid with skin.
 
 
 ## 

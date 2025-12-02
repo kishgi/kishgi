@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அன்பின் வழியது உயிர்நிலை அஃதிலார்க்கு**  
-> **என்புதோல் போர்த்த உடம்பு.**" — *குறள் 80*
+> "**அறஞ்சொல்லும் நெஞ்சத்தான் அன்மை புறஞ்சொல்லும்**  
+> **புன்மையாற் காணப் படும்.**" — *குறள் 185*
 
 </div>
 
 **பொருள்:**  
-அன்புநெஞ்சத்தின் வழியில் இயங்குவதே உயிருள்ள உடலாகும்; இல்லையேல், அது எலும்பைத் தோல் போர்த்திய வெறும் உடலேயாகும்.
+ஒருவன் பிறரைப்பற்றிப் புறம் பேசுகிற சிறுமைத்தன்மையைக்கொண்டே அவன் அறவழி நிற்பவன் அல்லன் என்பதை எளிதில் தெரிந்து கொள்ளலாம்.
 
 **Meaning (English):**  
-That body alone which is inspired with love contains a living soul: if void of it, (the body) is bone overlaid with skin.
+The emptiness of that man’s mind who (merely) praises virtue will be seen from the meanness of reviling another behind his back.
 
 
 ## 

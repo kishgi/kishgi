@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறஞ்சொல்லும் நெஞ்சத்தான் அன்மை புறஞ்சொல்லும்**  
-> **புன்மையாற் காணப் படும்.**" — *குறள் 185*
+> "**செவிகைப்பச் சொற்பொறுக்கும் பண்புடை வேந்தன்**  
+> **கவிகைக்கீழ்த் தங்கும் உலகு.**" — *குறள் 389*
 
 </div>
 
 **பொருள்:**  
-ஒருவன் பிறரைப்பற்றிப் புறம் பேசுகிற சிறுமைத்தன்மையைக்கொண்டே அவன் அறவழி நிற்பவன் அல்லன் என்பதை எளிதில் தெரிந்து கொள்ளலாம்.
+காதைக் குடையக்கூடிய கடுஞ்சொற்களையும் பொறுத்துக் கொள்கிற பண்பாளரின் அரசுக்குத்தான் மக்களிடம் மதிப்பு இருக்கும்.
 
 **Meaning (English):**  
-The emptiness of that man’s mind who (merely) praises virtue will be seen from the meanness of reviling another behind his back.
+The whole world will dwell under the umbrella of the king, who can bear words that embitter the ear.
 
 
 ## 

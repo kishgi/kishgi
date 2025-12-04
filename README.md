@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**செவிகைப்பச் சொற்பொறுக்கும் பண்புடை வேந்தன்**  
-> **கவிகைக்கீழ்த் தங்கும் உலகு.**" — *குறள் 389*
+> "**ஊடலின் உண்டாங்கோர் துன்பம் புணர்வது**  
+> **நீடுவ தன்று கொல் என்று.**" — *குறள் 1307*
 
 </div>
 
 **பொருள்:**  
-காதைக் குடையக்கூடிய கடுஞ்சொற்களையும் பொறுத்துக் கொள்கிற பண்பாளரின் அரசுக்குத்தான் மக்களிடம் மதிப்பு இருக்கும்.
+கூடி மயங்கிக் களித்திருக்கும் இன்பமான காலத்தின் அளவு குறைந்து விடுமோ என எண்ணுவதால் ஊடலிலும் ஒருவகைத் துன்பம் காதலர்க்கு உண்டு.
 
 **Meaning (English):**  
-The whole world will dwell under the umbrella of the king, who can bear words that embitter the ear.
+The doubt as to whether intercourse would take place soon or not, creates a sorrow (even) in feigned dislike.
 
 
 ## 

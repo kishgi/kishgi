@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஊடலின் உண்டாங்கோர் துன்பம் புணர்வது**  
-> **நீடுவ தன்று கொல் என்று.**" — *குறள் 1307*
+> "**செய்யாமல் செற்றார்க்கும் இன்னாத செய்தபின்**  
+> **உய்யா விழுமந் தரும்.**" — *குறள் 313*
 
 </div>
 
 **பொருள்:**  
-கூடி மயங்கிக் களித்திருக்கும் இன்பமான காலத்தின் அளவு குறைந்து விடுமோ என எண்ணுவதால் ஊடலிலும் ஒருவகைத் துன்பம் காதலர்க்கு உண்டு.
+யாருக்கும் கேடு செய்யாமல் இருப்பவருக்குப் பகைவர் கேடு செய்துவிட்டால் அதற்குப் பதிலாக அவருக்கு வரும் கேடு மீளாத் துன்பம் தரக் கூடியதாகும்.
 
 **Meaning (English):**  
-The doubt as to whether intercourse would take place soon or not, creates a sorrow (even) in feigned dislike.
+In an ascetic inflict suffering even on those who hate him, when he has not done them any evil, it will afterwards give him irretrievable sorrow.
 
 
 ## 

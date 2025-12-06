@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**செய்யாமல் செற்றார்க்கும் இன்னாத செய்தபின்**  
-> **உய்யா விழுமந் தரும்.**" — *குறள் 313*
+> "**வலியில் நிலைமையான் வல்லுருவம் பெற்றம்**  
+> **புலியின்தோல் போர்த்துமேய்ந் தற்று.**" — *குறள் 273*
 
 </div>
 
 **பொருள்:**  
-யாருக்கும் கேடு செய்யாமல் இருப்பவருக்குப் பகைவர் கேடு செய்துவிட்டால் அதற்குப் பதிலாக அவருக்கு வரும் கேடு மீளாத் துன்பம் தரக் கூடியதாகும்.
+மனத்தை அடக்க முடியாதவர் துறவுக்கோலம் பூணுவது, பசு ஒன்று புலித்தோலைப் போர்த்திக் கொண்டு பயிரை மேய்வது போன்றதாகும்.
 
 **Meaning (English):**  
-In an ascetic inflict suffering even on those who hate him, when he has not done them any evil, it will afterwards give him irretrievable sorrow.
+The assumed appearance of power, by a man who has no power (to restrain his senses and perform austerity), is like a cow feeding on grass covered with a tiger’s skin.
 
 
 ## 

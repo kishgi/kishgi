@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வலியில் நிலைமையான் வல்லுருவம் பெற்றம்**  
-> **புலியின்தோல் போர்த்துமேய்ந் தற்று.**" — *குறள் 273*
+> "**இயல்பினான் இல்வாழ்க்கை வாழ்பவன் என்பான்**  
+> **முயல்வாருள் எல்லாம் தலை.**" — *குறள் 47*
 
 </div>
 
 **பொருள்:**  
-மனத்தை அடக்க முடியாதவர் துறவுக்கோலம் பூணுவது, பசு ஒன்று புலித்தோலைப் போர்த்திக் கொண்டு பயிரை மேய்வது போன்றதாகும்.
+நல்வாழ்வுக்கான முயற்சிகளை மேற்கொள்வோரில் தலையானவராகத் திகழ்பவர், இல்வாழ்வின் இலக்கணமுணர்ந்து அதற்கேற்ப வாழ்பவர்தான்.
 
 **Meaning (English):**  
-The assumed appearance of power, by a man who has no power (to restrain his senses and perform austerity), is like a cow feeding on grass covered with a tiger’s skin.
+Among all those who labour (for future happiness) he is greatest who lives well in the household state.
 
 
 ## 

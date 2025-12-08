@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இயல்பினான் இல்வாழ்க்கை வாழ்பவன் என்பான்**  
-> **முயல்வாருள் எல்லாம் தலை.**" — *குறள் 47*
+> "**துறந்தாரின் தூய்மை உடையர் இறந்தார்வாய்**  
+> **இன்னாச்சொல் நோற்கிற் பவர்.**" — *குறள் 159*
 
 </div>
 
 **பொருள்:**  
-நல்வாழ்வுக்கான முயற்சிகளை மேற்கொள்வோரில் தலையானவராகத் திகழ்பவர், இல்வாழ்வின் இலக்கணமுணர்ந்து அதற்கேற்ப வாழ்பவர்தான்.
+எல்லை கடந்து நடந்து கொள்பவர்களின் கொடிய சொற்களைப் பொறுத்துக் கொள்பவர்கள் தூய்மையான துறவிகளைப் போன்றவர்கள்.
 
 **Meaning (English):**  
-Among all those who labour (for future happiness) he is greatest who lives well in the household state.
+Those who bear with the uncourteous speech of the insolent are as pure as the ascetics.
 
 
 ## 

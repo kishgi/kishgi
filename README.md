@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வையத்துள் வாழ்வாங்கு வாழ்பவன் வான்உநற்யும்**  
-> **தெய்வத்துள் வைக்கப் படும்.**" — *குறள் 50*
+> "**குறிப்பிற் குறிப்புணர் வாரை உறுப்பினுள்**  
+> **யாது கொடுத்தும் கொளல்.**" — *குறள் 703*
 
 </div>
 
 **பொருள்:**  
-தெய்வத்துக்கென எத்தனையோ அருங்குணங்கள் கூறப்படுகின்றன. உலகில் வாழ வேண்டிய அறநெறியில் நின்று வாழ்கிறவன் வானில் வாழ்வதாகச் சொல்லப்படும் தெய்வத்துக்கு இணையாக வைத்து மதிக்கப்படுவான்.
+ஒருவரின் முகக் குறிப்பைக் கொண்டே அவரது உள்ளக் குறிப்பை அறிந்து கொள்ளக்கூடிய ஆற்றலுடையவரை, எந்தப் பொறுப்பைக் கொடுத்தாவது துணையாக்கிக் கொள்ளவேண்டும்.
 
 **Meaning (English):**  
-He who on earth has lived in the conjugal state as he should live, will be placed among the Gods who dwell in heaven.
+The king should ever give whatever (is asked) of his belongings and secure him who, by the indications (of his own mind) is able to read those of another.
 
 
 ## 

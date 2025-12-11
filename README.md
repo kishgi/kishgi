@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**குறிப்பிற் குறிப்புணர் வாரை உறுப்பினுள்**  
-> **யாது கொடுத்தும் கொளல்.**" — *குறள் 703*
+> "**நெஞ்சத்தார் காத லவராக வெய்துண்டல்**  
+> **அஞ்சுதும் வேபாக் கறிந்து.**" — *குறள் 1128*
 
 </div>
 
 **பொருள்:**  
-ஒருவரின் முகக் குறிப்பைக் கொண்டே அவரது உள்ளக் குறிப்பை அறிந்து கொள்ளக்கூடிய ஆற்றலுடையவரை, எந்தப் பொறுப்பைக் கொடுத்தாவது துணையாக்கிக் கொள்ளவேண்டும்.
+சூடான பண்டத்தைச் சாப்பிட்டால் நெஞ்சுக்குள் இருக்கின்ற காதலருக்குச் சுட்டுவிடும் என்று அஞ்சுகின்ற அளவுக்கு நெஞ்சோடு நெஞ்சாகக் கலந்திருப்பவர்களே காதலர்களாவார்கள்.
 
 **Meaning (English):**  
-The king should ever give whatever (is asked) of his belongings and secure him who, by the indications (of his own mind) is able to read those of another.
+As my lover is in my heart, I am afraid of eating (anything) hot, for I know it would pain him.
 
 
 ## 

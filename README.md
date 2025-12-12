@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நெஞ்சத்தார் காத லவராக வெய்துண்டல்**  
-> **அஞ்சுதும் வேபாக் கறிந்து.**" — *குறள் 1128*
+> "**முறைப்படச் சூழ்ந்தும் முடிவிலவே செய்வர்**  
+> **திறப்பாடு இலாஅ தவர்.**" — *குறள் 640*
 
 </div>
 
 **பொருள்:**  
-சூடான பண்டத்தைச் சாப்பிட்டால் நெஞ்சுக்குள் இருக்கின்ற காதலருக்குச் சுட்டுவிடும் என்று அஞ்சுகின்ற அளவுக்கு நெஞ்சோடு நெஞ்சாகக் கலந்திருப்பவர்களே காதலர்களாவார்கள்.
+முறைப்படித் தீட்டப்படும் திட்டங்கள்கூடச் செயல் திறன் இல்லாதவர்களிடம் சிக்கினால் முழுமையாகாமல் முடங்கித்தான் கிடக்கும்.
 
 **Meaning (English):**  
-As my lover is in my heart, I am afraid of eating (anything) hot, for I know it would pain him.
+Those ministers who are destitute of (executive) ability will fail to carry out their projects, although they may have contrived aright.
 
 
 ## 

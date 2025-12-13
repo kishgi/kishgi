@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**முறைப்படச் சூழ்ந்தும் முடிவிலவே செய்வர்**  
-> **திறப்பாடு இலாஅ தவர்.**" — *குறள் 640*
+> "**இன்பம் ஒருவற்கு இரத்தல் இரந்தவை**  
+> **துன்பம் உறாஅ வரின்.**" — *குறள் 1052*
 
 </div>
 
 **பொருள்:**  
-முறைப்படித் தீட்டப்படும் திட்டங்கள்கூடச் செயல் திறன் இல்லாதவர்களிடம் சிக்கினால் முழுமையாகாமல் முடங்கித்தான் கிடக்கும்.
+வழங்குபவர், வாங்குபவர் ஆகிய இருவர் மனத்திற்கும் துன்பம் எதுவுமின்றி ஒரு பொருள் கிடைக்குமானால், அப்பொருள் இரந்து பெற்றதாக இருப்பினும் அதனால் இன்பமே உண்டாகும்.
 
 **Meaning (English):**  
-Those ministers who are destitute of (executive) ability will fail to carry out their projects, although they may have contrived aright.
+Even begging may be pleasant, if what is begged for is obtained without grief (to him that begs).
 
 
 ## 

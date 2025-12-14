@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இன்பம் ஒருவற்கு இரத்தல் இரந்தவை**  
-> **துன்பம் உறாஅ வரின்.**" — *குறள் 1052*
+> "**அருள்வெஃகி ஆற்றின்கண் நின்றான் பொருள்வெஃகிப்**  
+> **பொல்லாத சூழக் கெடும்.**" — *குறள் 176*
 
 </div>
 
 **பொருள்:**  
-வழங்குபவர், வாங்குபவர் ஆகிய இருவர் மனத்திற்கும் துன்பம் எதுவுமின்றி ஒரு பொருள் கிடைக்குமானால், அப்பொருள் இரந்து பெற்றதாக இருப்பினும் அதனால் இன்பமே உண்டாகும்.
+அருளை விரும்பி அதனை அடைவதற்கான வழியில் செல்பவன் தவறிப்போய்ப் பிறர் பொருளை விரும்பிப் பொல்லாத செயலில் ஈ.டுபட்டால் கெட்டொழிய நேரிடும்.
 
 **Meaning (English):**  
-Even begging may be pleasant, if what is begged for is obtained without grief (to him that begs).
+If he, who through desire of the virtue of kindness abides in the domestic state i.e., the path in which it may be obtained, covet (the property of others) and think of evil methods (to obtain it), he will perish.
 
 
 ## 

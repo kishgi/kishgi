@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அருள்வெஃகி ஆற்றின்கண் நின்றான் பொருள்வெஃகிப்**  
-> **பொல்லாத சூழக் கெடும்.**" — *குறள் 176*
+> "**காலத்தி னாற்செய்த நன்றி சிறிதெனினும்**  
+> **ஞாலத்தின் மாணப் பெரிது.**" — *குறள் 102*
 
 </div>
 
 **பொருள்:**  
-அருளை விரும்பி அதனை அடைவதற்கான வழியில் செல்பவன் தவறிப்போய்ப் பிறர் பொருளை விரும்பிப் பொல்லாத செயலில் ஈ.டுபட்டால் கெட்டொழிய நேரிடும்.
+தேவைப்படும் காலத்தில் செய்யப்படும் உதவி சிறிதளவாக இருந்தாலும், அது உலகத்தைவிடப் பெரிதாக மதிக்கப்படும்.
 
 **Meaning (English):**  
-If he, who through desire of the virtue of kindness abides in the domestic state i.e., the path in which it may be obtained, covet (the property of others) and think of evil methods (to obtain it), he will perish.
+A favour conferred in the time of need, though it be small (in itself), is (in value) much larger than the world.
 
 
 ## 

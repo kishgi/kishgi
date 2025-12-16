@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**காலத்தி னாற்செய்த நன்றி சிறிதெனினும்**  
-> **ஞாலத்தின் மாணப் பெரிது.**" — *குறள் 102*
+> "**தந்தை மகற்காற்று நன்றி அவையத்து**  
+> **முந்தி இருப்பச் செயல்.**" — *குறள் 67*
 
 </div>
 
 **பொருள்:**  
-தேவைப்படும் காலத்தில் செய்யப்படும் உதவி சிறிதளவாக இருந்தாலும், அது உலகத்தைவிடப் பெரிதாக மதிக்கப்படும்.
+தன் மக்களுக்குச் செய்யவேண்டிய நல்லுதவி அவர்களை அறிஞர்கள் அவையில் புகழுடன் விளங்குமாறு ஆக்குதலே ஆகும்.
 
 **Meaning (English):**  
-A favour conferred in the time of need, though it be small (in itself), is (in value) much larger than the world.
+The benefit which a father should confer on his son is to give him precedence in the assembly of the learned.
 
 
 ## 

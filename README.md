@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தந்தை மகற்காற்று நன்றி அவையத்து**  
-> **முந்தி இருப்பச் செயல்.**" — *குறள் 67*
+> "**துறந்தாரின் தூய்மை உடையர் இறந்தார்வாய்**  
+> **இன்னாச்சொல் நோற்கிற் பவர்.**" — *குறள் 159*
 
 </div>
 
 **பொருள்:**  
-தன் மக்களுக்குச் செய்யவேண்டிய நல்லுதவி அவர்களை அறிஞர்கள் அவையில் புகழுடன் விளங்குமாறு ஆக்குதலே ஆகும்.
+எல்லை கடந்து நடந்து கொள்பவர்களின் கொடிய சொற்களைப் பொறுத்துக் கொள்பவர்கள் தூய்மையான துறவிகளைப் போன்றவர்கள்.
 
 **Meaning (English):**  
-The benefit which a father should confer on his son is to give him precedence in the assembly of the learned.
+Those who bear with the uncourteous speech of the insolent are as pure as the ascetics.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அஞ்சாமை ஈகை அறிவூக்கம் இந்நான்கும்**  
-> **எஞ்சாமை வேந்தர்க் கியல்பு.**" — *குறள் 382*
+> "**கல்லார்ப் பிணிக்கும் கடுங்கோல் அதுவல்லது**  
+> **இல்லை நிலக்குப் பொறை.**" — *குறள் 570*
 
 </div>
 
 **பொருள்:**  
-துணிவு, இரக்க சிந்தை, அறிவாற்றல், உயர்ந்த குறிக்கோளை எட்டும் முயற்சி ஆகிய நான்கு பண்புகளும் அரசுக்குரிய தகுதிகளாகும்.
+கொடுங்கோல் அரசு படிக்காதவர்களைத் தனக்கு பக்கபலமாக்கிக் கொள்ளும். அதைப்போல பூமிக்குப் பாரம் வேறு எதுவுமில்லை.
 
 **Meaning (English):**  
-Never to fail in these four things, fearlessness, liberality, wisdom, and energy, is the kingly character.
+The earth bears up no greater burden than ignorant men whom a cruel sceptre attaches to itself (as the ministers of its evil deeds).
 
 
 ## 

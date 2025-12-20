@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கல்லார்ப் பிணிக்கும் கடுங்கோல் அதுவல்லது**  
-> **இல்லை நிலக்குப் பொறை.**" — *குறள் 570*
+> "**செவிச்சொல்லும் சேர்ந்த நகையும் அவித்தொழுகல்**  
+> **ஆன்ற பெரியா ரகத்து.**" — *குறள் 694*
 
 </div>
 
 **பொருள்:**  
-கொடுங்கோல் அரசு படிக்காதவர்களைத் தனக்கு பக்கபலமாக்கிக் கொள்ளும். அதைப்போல பூமிக்குப் பாரம் வேறு எதுவுமில்லை.
+ஆற்றல் வாய்ந்த பெரியவர்கள் முன்னே, மற்றவர்கள் காதுக்குள் பேசுவதையும், அவர்களுடன் சேர்ந்து சிரிப்பதையும் தவிர்த்து, அடக்கமெனும் பண்பைக் காத்திடல் வேண்டும்.
 
 **Meaning (English):**  
-The earth bears up no greater burden than ignorant men whom a cruel sceptre attaches to itself (as the ministers of its evil deeds).
+While in the presence of the sovereign, ministers should neither whisper to nor smile at others.
 
 
 ## 

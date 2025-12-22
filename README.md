@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நன்மையும் தீமையும் நாடி நலம்புரிந்த**  
-> **தன்மையான் ஆளப் படும்.**" — *குறள் 511*
+> "**அஃகாமை செல்வத்திற்கு யாதெனின் வெஃகாமை**  
+> **வேண்டும் பிறன்கைப் பொருள்.**" — *குறள் 178*
 
 </div>
 
 **பொருள்:**  
-நன்மை எது தீமை எது என ஆராய்ந்து அறிந்த, நற்செயலில் மட்டுமே நாட்டங் கொண்டவர்கள் எப்பணியினை ஆற்றிடவும் தகுதி பெற்றவராவார்கள்.
+தன்னுடைய செல்வச் செழிப்பு குறையாமலிருக்க வேண்டுமென்றால் பிறருடைய பொருளையும் தானே அடைய வேண்டுமென்று ஆசைப்படாமலிருக்க வேண்டும்.
 
 **Meaning (English):**  
-He should be employed (by a king), whose nature leads him to choose the good, after having weighed both the evil and the good in any undertaking.
+How will one’s wealth never shrink? By, not desiring to usurp the wealth of others.
 
 
 ## 

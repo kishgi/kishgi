@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பொய்யாமை பொய்யாமை ஆற்றின் அறம்பிற**  
-> **செய்யாமை செய்யாமை நன்று.**" — *குறள் 297*
+> "**விளக்கற்றம் பார்க்கும் இருளேபோல் கொண்கன்**  
+> **முயக்கற்றம் பார்க்கும் பசப்பு.**" — *குறள் 1186*
 
 </div>
 
 **பொருள்:**  
-செய்யக்கூடாததைச் செய்யாததால் விளையும் நன்மையைவிடப் பொய் கூறாத பண்பு பொய்த்துப் போகாமல் கடைப்பிடிக்கும் அறவழி நன்மை தருவதாகும்.
+விளக்கின் ஒளிகுறையும் சமயம் பார்த்துப் பரவிடும் இருளைப்போல, இறுகத் தழுவிய காதலன்பிடி, சற்றுத் தளரும்போது காதலியின் உடலில் பசலைநிறம் படர்ந்து விடுகிறது.
 
 **Meaning (English):**  
-If a man has the power to abstain from falsehood, it will be well with him, even though he practise no other virtue.
+Just as darkness waits for the failing light; so does sallowness wait for the laxity of my husband’s intercourse.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**விளக்கற்றம் பார்க்கும் இருளேபோல் கொண்கன்**  
-> **முயக்கற்றம் பார்க்கும் பசப்பு.**" — *குறள் 1186*
+> "**உடைசெல்வம் ஊண்ஒளி கல்விஎன்று ஐந்தும்**  
+> **அடையாவாம் ஆயங் கொளின்.**" — *குறள் 939*
 
 </div>
 
 **பொருள்:**  
-விளக்கின் ஒளிகுறையும் சமயம் பார்த்துப் பரவிடும் இருளைப்போல, இறுகத் தழுவிய காதலன்பிடி, சற்றுத் தளரும்போது காதலியின் உடலில் பசலைநிறம் படர்ந்து விடுகிறது.
+சூதாட்டத்திற்கு அடிமையாகி விட்டவர்களை விட்டுப் புகழும், கல்வியும், செல்வமும், உணவும், உடையும் அகன்று ஒதுங்கி விடும்.
 
 **Meaning (English):**  
-Just as darkness waits for the failing light; so does sallowness wait for the laxity of my husband’s intercourse.
+The habit of gambling prevents the attainment of these five: clothing, wealth, food, fame and learning.
 
 
 ## 

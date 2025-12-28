@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உடைசெல்வம் ஊண்ஒளி கல்விஎன்று ஐந்தும்**  
-> **அடையாவாம் ஆயங் கொளின்.**" — *குறள் 939*
+> "**பொருளல்ல வற்றைப் பொருளென்று உணரும்**  
+> **மருளானாம் மாணாப் பிறப்பு.**" — *குறள் 351*
 
 </div>
 
 **பொருள்:**  
-சூதாட்டத்திற்கு அடிமையாகி விட்டவர்களை விட்டுப் புகழும், கல்வியும், செல்வமும், உணவும், உடையும் அகன்று ஒதுங்கி விடும்.
+நிலையற்றவைகளை நிலையானவை என நம்புகின்ற அறியாமை மிக இழிவானதாகும்.
 
 **Meaning (English):**  
-The habit of gambling prevents the attainment of these five: clothing, wealth, food, fame and learning.
+Inglorious births are produced by the confusion (of mind) which considers those things to be real which are not real.
 
 
 ## 

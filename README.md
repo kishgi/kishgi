@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பொருளல்ல வற்றைப் பொருளென்று உணரும்**  
-> **மருளானாம் மாணாப் பிறப்பு.**" — *குறள் 351*
+> "**இளையர் இனமுறையர் என்றிகழார் நின்ற**  
+> **ஒளியோடு ஒழுகப் படும்.**" — *குறள் 698*
 
 </div>
 
 **பொருள்:**  
-நிலையற்றவைகளை நிலையானவை என நம்புகின்ற அறியாமை மிக இழிவானதாகும்.
+எமக்கு இளையவர்தான்; இன்ன முறையில் உறவுடையவர் தான் என்று ஆட்சிப் பொறுப்பில் இருப்போரை இகழ்ந்துரைக்காமல், அவர்கள் அடைந்துள்ள பெருமைக்கேற்பப் பண்புடன் நடந்து கொள்ள வேண்டும்.
 
 **Meaning (English):**  
-Inglorious births are produced by the confusion (of mind) which considers those things to be real which are not real.
+Ministers should behave in accordance with the (Divine) light in the person of kings and not despise them saying, 'He is our junior (in age) and connected with our family!'.
 
 
 ## 

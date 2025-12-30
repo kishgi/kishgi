@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இளையர் இனமுறையர் என்றிகழார் நின்ற**  
-> **ஒளியோடு ஒழுகப் படும்.**" — *குறள் 698*
+> "**காதலர் தூதொடு வந்த கனவினுக்கு**  
+> **யாதுசெய் வேன்கொல் விருந்து.**" — *குறள் 1211*
 
 </div>
 
 **பொருள்:**  
-எமக்கு இளையவர்தான்; இன்ன முறையில் உறவுடையவர் தான் என்று ஆட்சிப் பொறுப்பில் இருப்போரை இகழ்ந்துரைக்காமல், அவர்கள் அடைந்துள்ள பெருமைக்கேற்பப் பண்புடன் நடந்து கொள்ள வேண்டும்.
+வந்த கனவு காதலர் அனுப்பிய தூதுடன் வந்ததே; அந்தக் கனவுக்குக் கைம்மாறாக என்ன விருந்து படைத்துப் பாராட்டுவது?.
 
 **Meaning (English):**  
-Ministers should behave in accordance with the (Divine) light in the person of kings and not despise them saying, 'He is our junior (in age) and connected with our family!'.
+Where with shall I feast the dream which has brought me my dear one’s messenger ?
 
 
 ## 

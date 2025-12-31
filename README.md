@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**காதலர் தூதொடு வந்த கனவினுக்கு**  
-> **யாதுசெய் வேன்கொல் விருந்து.**" — *குறள் 1211*
+> "**அழுக்காறு உடையார்க்கு அதுசாலும் ஒன்னார்**  
+> **வழுக்காயும் கேடீன் பது.**" — *குறள் 165*
 
 </div>
 
 **பொருள்:**  
-வந்த கனவு காதலர் அனுப்பிய தூதுடன் வந்ததே; அந்தக் கனவுக்குக் கைம்மாறாக என்ன விருந்து படைத்துப் பாராட்டுவது?.
+பொறாமைக் குணம் கொண்டவர்களுக்கு அவர்களை வீழ்த்த வேறு பகையே வேண்டா. அந்தக் குணமே அவர்களை வீழ்த்தி விடும்.
 
 **Meaning (English):**  
-Where with shall I feast the dream which has brought me my dear one’s messenger ?
+To those who cherish envy that is enough. Though free from enemies that (envy) will bring destruction.
 
 
 ## 

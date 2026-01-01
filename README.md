@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அழுக்காறு உடையார்க்கு அதுசாலும் ஒன்னார்**  
-> **வழுக்காயும் கேடீன் பது.**" — *குறள் 165*
+> "**உறுப்பமைந்து ஊறஞ்சா வெல்படை வேந்தன்**  
+> **வெறுக்கையுள் எல்லாம் தலை.**" — *குறள் 761*
 
 </div>
 
 **பொருள்:**  
-பொறாமைக் குணம் கொண்டவர்களுக்கு அவர்களை வீழ்த்த வேறு பகையே வேண்டா. அந்தக் குணமே அவர்களை வீழ்த்தி விடும்.
+எல்லா வகைகளும் நிறைந்ததாகவும், இடையூறுகளுக்கு அஞ்சாமல் போரிடக்கூடியதாகவும் உள்ள படை ஓர் அரசின் மிகச்சிறந்த செல்வமாகும்.
 
 **Meaning (English):**  
-To those who cherish envy that is enough. Though free from enemies that (envy) will bring destruction.
+The army which is complete in (its) parts and conquers without fear of wounds is the chief wealth of the king.
 
 
 ## 

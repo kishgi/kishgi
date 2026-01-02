@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உறுப்பமைந்து ஊறஞ்சா வெல்படை வேந்தன்**  
-> **வெறுக்கையுள் எல்லாம் தலை.**" — *குறள் 761*
+> "**வாணிகம் செய்வார்க்கு வாணிகம் பேணிப்**  
+> **பிறவும் தமபோல் செயின்.**" — *குறள் 120*
 
 </div>
 
 **பொருள்:**  
-எல்லா வகைகளும் நிறைந்ததாகவும், இடையூறுகளுக்கு அஞ்சாமல் போரிடக்கூடியதாகவும் உள்ள படை ஓர் அரசின் மிகச்சிறந்த செல்வமாகும்.
+பிறர் பொருளாக இருப்பினும் அதனைத் தன் பொருளைப் போலவே கருதி நேர்மையுடன் வாணிகம் செய்தலே வணிக நெறியெனப்படும்.
 
 **Meaning (English):**  
-The army which is complete in (its) parts and conquers without fear of wounds is the chief wealth of the king.
+The true merchandize of merchants is to guard and do by the things of others as they do by their own.
 
 
 ## 

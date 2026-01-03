@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வாணிகம் செய்வார்க்கு வாணிகம் பேணிப்**  
-> **பிறவும் தமபோல் செயின்.**" — *குறள் 120*
+> "**பெரிதாற்றிப் பெட்பக் கலத்தல் அரிதாற்றி**  
+> **அன்பின்மை சூழ்வ துடைத்து.**" — *குறள் 1276*
 
 </div>
 
 **பொருள்:**  
-பிறர் பொருளாக இருப்பினும் அதனைத் தன் பொருளைப் போலவே கருதி நேர்மையுடன் வாணிகம் செய்தலே வணிக நெறியெனப்படும்.
+ஆரத் தழுவி அளவற்ற அன்பு காட்டி அவர் என்னைக் கூடுவதானது மீண்டும் அவர் என்னைப் பிரிந்து செல்லப் போகிற குறிப்பை உணர்த்துவது போல் இருக்கிறதே.
 
 **Meaning (English):**  
-The true merchandize of merchants is to guard and do by the things of others as they do by their own.
+The embrace that fills me with comfort and gladness is capable of enduring (my former) sorrow and meditating on his want of love.
 
 
 ## 

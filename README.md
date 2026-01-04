@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பெரிதாற்றிப் பெட்பக் கலத்தல் அரிதாற்றி**  
-> **அன்பின்மை சூழ்வ துடைத்து.**" — *குறள் 1276*
+> "**பழையம் எனக்கருதிப் பண்பல்ல செய்யும்**  
+> **கெழுதகைமை கேடு தரும்.**" — *குறள் 700*
 
 </div>
 
 **பொருள்:**  
-ஆரத் தழுவி அளவற்ற அன்பு காட்டி அவர் என்னைக் கூடுவதானது மீண்டும் அவர் என்னைப் பிரிந்து செல்லப் போகிற குறிப்பை உணர்த்துவது போல் இருக்கிறதே.
+நெடுங்காலமாக நெருங்கிப் பழகுகிற காரணத்தினாலேயே தகாத செயல்களைச் செய்திட உரிமை எடுத்துக்கொள்வது கேடாகவே முடியும்.
 
 **Meaning (English):**  
-The embrace that fills me with comfort and gladness is capable of enduring (my former) sorrow and meditating on his want of love.
+The (foolish) claim with which a minister does unbecoming acts because of his (long) familiarity (with the king) will ensure his ruin.
 
 
 ## 

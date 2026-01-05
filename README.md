@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பழையம் எனக்கருதிப் பண்பல்ல செய்யும்**  
-> **கெழுதகைமை கேடு தரும்.**" — *குறள் 700*
+> "**ஆரா இயற்கை அவாநீப்பின் அந்நிலையே**  
+> **பேரா இயற்கை தரும்.**" — *குறள் 370*
 
 </div>
 
 **பொருள்:**  
-நெடுங்காலமாக நெருங்கிப் பழகுகிற காரணத்தினாலேயே தகாத செயல்களைச் செய்திட உரிமை எடுத்துக்கொள்வது கேடாகவே முடியும்.
+இயல்பாகவே எழும் அடங்காத பேராசையை அகற்றி வாழும் நிலை, நீங்காத இன்பத்தை இயல்பாகவே தரக்கூடியதாகும்.
 
 **Meaning (English):**  
-The (foolish) claim with which a minister does unbecoming acts because of his (long) familiarity (with the king) will ensure his ruin.
+The removal of desire, whose nature it is never to be satisfied, will immediately confer a nature that can never be changed.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஆரா இயற்கை அவாநீப்பின் அந்நிலையே**  
-> **பேரா இயற்கை தரும்.**" — *குறள் 370*
+> "**கேளிழுக்கம் கேளாக் கெழுதகைமை வல்லார்க்கு**  
+> **நாளிழுக்கம் நட்டார் செயின்.**" — *குறள் 808*
 
 </div>
 
 **பொருள்:**  
-இயல்பாகவே எழும் அடங்காத பேராசையை அகற்றி வாழும் நிலை, நீங்காத இன்பத்தை இயல்பாகவே தரக்கூடியதாகும்.
+நண்பர்கள் செய்யும் குற்றத்தைப் பிறர்கூறி அதனை ஏற்றுக் கொள்ளாத அளவுக்கு நம்பிக்கையான நட்புரிமை கொண்டவரிடத்திலேயே அந்த நண்பர்கள் தவறாக நடந்து கொண்டால் அவர்களுடன் நட்புக் கொண்டிருந்த நாளெல்லாம் வீணான நாளாகும்.
 
 **Meaning (English):**  
-The removal of desire, whose nature it is never to be satisfied, will immediately confer a nature that can never be changed.
+To those who understand that by which they should not listen to (tales about) the faults of their friends, that is a (profitable) day on which the latter may commit a fault.
 
 
 ## 

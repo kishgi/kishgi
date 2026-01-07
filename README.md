@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கேளிழுக்கம் கேளாக் கெழுதகைமை வல்லார்க்கு**  
-> **நாளிழுக்கம் நட்டார் செயின்.**" — *குறள் 808*
+> "**துஞ்சுங்கால் தோள்மேலர் ஆகி விழிக்குங்கால்**  
+> **நெஞ்சத்தர் ஆவர் விரைந்து.**" — *குறள் 1218*
 
 </div>
 
 **பொருள்:**  
-நண்பர்கள் செய்யும் குற்றத்தைப் பிறர்கூறி அதனை ஏற்றுக் கொள்ளாத அளவுக்கு நம்பிக்கையான நட்புரிமை கொண்டவரிடத்திலேயே அந்த நண்பர்கள் தவறாக நடந்து கொண்டால் அவர்களுடன் நட்புக் கொண்டிருந்த நாளெல்லாம் வீணான நாளாகும்.
+தூக்கத்தில் கனவில் வந்து என் தோள் மீது சாய்ந்து இன்பம் தந்தவர், விழித்தபோது எங்கும் போய் விடவில்லை; என் நெஞ்சில் தாவி அமர்ந்து கொண்டார்.
 
 **Meaning (English):**  
-To those who understand that by which they should not listen to (tales about) the faults of their friends, that is a (profitable) day on which the latter may commit a fault.
+When I am asleep he rests on my shoulders, (but) when I awake he hastens into my soul.
 
 
 ## 

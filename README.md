@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உள்ளினும் தீராப் பெருமகிழ் செய்தலால்**  
-> **கள்ளினும் காமம் இனிது.**" — *குறள் 1201*
+> "**வகையறச் சூழா தெழுதல் பகைவரைப்**  
+> **பாத்திப் படுப்பதோ ராறு.**" — *குறள் 465*
 
 </div>
 
 **பொருள்:**  
-உண்டபோது மட்டும் மகிழ்ச்சி தரும் கள்ளைவிட நினைத்தாலே நெஞ்சினிக்கச் செய்யும் காதல் இன்பமானதாகும்.
+முன்னேற்பாடுகளை முழுமையாக ஆராய்ந்து செய்யாமல் பகைவரை ஒடுக்க முனைவது அந்தப் பகைவரின் வலிமையை நிலையாக வளர்க்கும் வழியாக ஆகிவிடும்.
 
 **Meaning (English):**  
-Sexuality is sweeter than liquor, because when remembered, it creates a most rapturous delight.
+One way to promote the prosperity of an enemy, is (for a king) to set out (to war) without having thoroughly weighed his ability (to cope with its chances).
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வகையறச் சூழா தெழுதல் பகைவரைப்**  
-> **பாத்திப் படுப்பதோ ராறு.**" — *குறள் 465*
+> "**பேணாது பெட்பவே செய்யினும் கொண்கனைக்**  
+> **காணா தமையல கண்.**" — *குறள் 1283*
 
 </div>
 
 **பொருள்:**  
-முன்னேற்பாடுகளை முழுமையாக ஆராய்ந்து செய்யாமல் பகைவரை ஒடுக்க முனைவது அந்தப் பகைவரின் வலிமையை நிலையாக வளர்க்கும் வழியாக ஆகிவிடும்.
+என்னை அரவணைக்காமல் தமக்கு விருப்பமானவற்றையே செய்து கொண்டிருந்தாலும், என் கண்கள் அவரைக் காணாமல் அமைதி அடைவதில்லை.
 
 **Meaning (English):**  
-One way to promote the prosperity of an enemy, is (for a king) to set out (to war) without having thoroughly weighed his ability (to cope with its chances).
+Though my eyes disregard me and do what is pleasing to my husband, still will they not be satisfied unless they see him.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பேணாது பெட்பவே செய்யினும் கொண்கனைக்**  
-> **காணா தமையல கண்.**" — *குறள் 1283*
+> "**குடிசெய்வார்க் கில்லை பருவம் மடிசெய்து**  
+> **மானங் கருதக் கெடும்.**" — *குறள் 1028*
 
 </div>
 
 **பொருள்:**  
-என்னை அரவணைக்காமல் தமக்கு விருப்பமானவற்றையே செய்து கொண்டிருந்தாலும், என் கண்கள் அவரைக் காணாமல் அமைதி அடைவதில்லை.
+தன்மீது நடத்தப்படும் இழிவான தாக்குதலைக் கண்டு கலங்கினாலோ, பணியாற்றக் காலம் வரட்டும் என்று சோர்வுடன் தயக்கம் காட்டினாலோ குடிமக்களின் நலன் சீர்குலைத்துவிடும்.
 
 **Meaning (English):**  
-Though my eyes disregard me and do what is pleasing to my husband, still will they not be satisfied unless they see him.
+As a family sufers by (one’s) indolence and false dignity there is to be so season (good or bad) to those who strive to raise their family.
 
 
 ## 

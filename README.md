@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**குடிசெய்வார்க் கில்லை பருவம் மடிசெய்து**  
-> **மானங் கருதக் கெடும்.**" — *குறள் 1028*
+> "**அருவினை யென்ப உளவோ கருவியான்**  
+> **காலம் அறிந்து செயின்.**" — *குறள் 483*
 
 </div>
 
 **பொருள்:**  
-தன்மீது நடத்தப்படும் இழிவான தாக்குதலைக் கண்டு கலங்கினாலோ, பணியாற்றக் காலம் வரட்டும் என்று சோர்வுடன் தயக்கம் காட்டினாலோ குடிமக்களின் நலன் சீர்குலைத்துவிடும்.
+தேவையான சாதனங்களுடன் உரிய நேரத்தையும் அறிந்து செயல்பட்டால் முடியாதவை என்று எவையுமே இல்லை.
 
 **Meaning (English):**  
-As a family sufers by (one’s) indolence and false dignity there is to be so season (good or bad) to those who strive to raise their family.
+Is there anything dificult for him to do, who acts, with (the right) instruments at the right time ?
 
 
 ## 

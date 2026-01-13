@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அருவினை யென்ப உளவோ கருவியான்**  
-> **காலம் அறிந்து செயின்.**" — *குறள் 483*
+> "**தோன்றின் புகழொடு தோன்றுக அஃதிலார்**  
+> **தோன்றலின் தோன்றாமை நன்று.**" — *குறள் 236*
 
 </div>
 
 **பொருள்:**  
-தேவையான சாதனங்களுடன் உரிய நேரத்தையும் அறிந்து செயல்பட்டால் முடியாதவை என்று எவையுமே இல்லை.
+எந்தத் துறையில் ஈடுபட்டாலும் அதில் புகழுடன் விளங்கவேண்டும்; இயலாதவர்கள் அந்தத் துறையில் ஈ.டுபடாமல் இருப்பதே நல்லது.
 
 **Meaning (English):**  
-Is there anything dificult for him to do, who acts, with (the right) instruments at the right time ?
+If you are born (in this world), be born with qualities conductive to fame. From those who are destitute of them it will be better not to be born.
 
 
 ## 

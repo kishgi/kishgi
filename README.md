@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தோன்றின் புகழொடு தோன்றுக அஃதிலார்**  
-> **தோன்றலின் தோன்றாமை நன்று.**" — *குறள் 236*
+> "**கருமணியிற் பாவாய்நீ போதாயாம் வீழும்**  
+> **திருநுதற்கு இல்லை இடம்.**" — *குறள் 1123*
 
 </div>
 
 **பொருள்:**  
-எந்தத் துறையில் ஈடுபட்டாலும் அதில் புகழுடன் விளங்கவேண்டும்; இயலாதவர்கள் அந்தத் துறையில் ஈ.டுபடாமல் இருப்பதே நல்லது.
+நான் விரும்புகின்ற அழகிக்கு என் கண்ணிலேயே இடம் கொடுப்பதற்காக என் கண்ணின் கருமணியில் உள்ள பாவையே! அவளுக்கு இடமளித்து விட்டு நீ போய்விடு!.
 
 **Meaning (English):**  
-If you are born (in this world), be born with qualities conductive to fame. From those who are destitute of them it will be better not to be born.
+O you image in the pupil (of my eye)! depart; there is no room for (my) fair-browed beloved.
 
 
 ## 

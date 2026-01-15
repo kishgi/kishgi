@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கருமணியிற் பாவாய்நீ போதாயாம் வீழும்**  
-> **திருநுதற்கு இல்லை இடம்.**" — *குறள் 1123*
+> "**ஆற்றின் அறவறிந்து ஈக அதுபொருள்**  
+> **போற்றி வழங்கு நெறி.**" — *குறள் 477*
 
 </div>
 
 **பொருள்:**  
-நான் விரும்புகின்ற அழகிக்கு என் கண்ணிலேயே இடம் கொடுப்பதற்காக என் கண்ணின் கருமணியில் உள்ள பாவையே! அவளுக்கு இடமளித்து விட்டு நீ போய்விடு!.
+வருவாய் அளவை அறிந்து, அதனை வகுத்து வழங்குவதே பொருளைச் சீராகக் காத்து வாழும் வழியாகும்.
 
 **Meaning (English):**  
-O you image in the pupil (of my eye)! depart; there is no room for (my) fair-browed beloved.
+Let a man know the measure of his ability (to give), and let him give accordingly; such giving is the way to preserve his property.
 
 
 ## 

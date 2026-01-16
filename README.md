@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஆற்றின் அறவறிந்து ஈக அதுபொருள்**  
-> **போற்றி வழங்கு நெறி.**" — *குறள் 477*
+> "**தொல்வரவும் தோலும் கெடுக்கும் தொகையாக**  
+> **நல்குரவு என்னும் நசை.**" — *குறள் 1043*
 
 </div>
 
 **பொருள்:**  
-வருவாய் அளவை அறிந்து, அதனை வகுத்து வழங்குவதே பொருளைச் சீராகக் காத்து வாழும் வழியாகும்.
+ஒருவனுக்கு வறுமையின் காரணமாகப் பேராசை ஏற்படுமேயானால், அது அவனுடைய பரம்பரைப் பெருமையையும், புகழையும் ஒரு சேரக் கெடுத்துவிடும்.
 
 **Meaning (English):**  
-Let a man know the measure of his ability (to give), and let him give accordingly; such giving is the way to preserve his property.
+Hankering poverty destroys at once the greatness of (one’s) ancient descent and (the dignity of one’s) speech.
 
 
 ## 

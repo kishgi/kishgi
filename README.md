@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தொல்வரவும் தோலும் கெடுக்கும் தொகையாக**  
-> **நல்குரவு என்னும் நசை.**" — *குறள் 1043*
+> "**புன்கண்ணை வாழி மருள்மாலை எம்கேள்போல்**  
+> **வன்கண்ண தோநின் துணை.**" — *குறள் 1222*
 
 </div>
 
 **பொருள்:**  
-ஒருவனுக்கு வறுமையின் காரணமாகப் பேராசை ஏற்படுமேயானால், அது அவனுடைய பரம்பரைப் பெருமையையும், புகழையும் ஒரு சேரக் கெடுத்துவிடும்.
+மயங்கும் மாலைப் பொழுதே! நீயும் எம்மைப் போல் துன்பப்படுகின்றாயே! எம் காதலர் போல் உன் துணையும் இரக்கம் அற்றதோ?.
 
 **Meaning (English):**  
-Hankering poverty destroys at once the greatness of (one’s) ancient descent and (the dignity of one’s) speech.
+A long life to you, O dark evening! You are sightless. Is your help-mate (also) as hard-hearted as mine.
 
 
 ## 

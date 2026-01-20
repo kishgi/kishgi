@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நெடும்புனலுள் வெல்லும் முதலை அடும்புனலின்**  
-> **நீங்கின் அதனைப் பிற.**" — *குறள் 495*
+> "**கணைகொடிது யாழ்கோடு செவ்விதுஆங் கன்ன**  
+> **வினைபடு பாலால் கொளல்.**" — *குறள் 279*
 
 </div>
 
 **பொருள்:**  
-தண்ணீரில் இருக்கும் வரையில்தான் முதலைக்குப் பலம்; தண்ணீரைவிட்டு வெளியே வந்து விட்டால் ஒரு சாதாரண உயிர்கூட அதனை விரட்டி விடும்.
+நேராகத் தோன்றும் அம்பு, கொலைச் செயல் புரியும். வளைந்து தோன்றும் யாழ், இசை, இன்பம் பயக்கும். அது போலவே மக்களின் பண்புகளையும் அவர்களது செயலால் மட்டுமே உணர்ந்து கொள்ள வேண்டும்.
 
 **Meaning (English):**  
-In deep water, a crocodile will conquer (all other animals); but if it leave the water, other animals will conquer it.
+As, in its use, the arrow is crooked, and the curved lute is straight, so by their deeds, (and not by their appearance) let (the uprightness or crookedness of) men be estimated.
 
 
 ## 

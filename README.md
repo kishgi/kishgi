@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கணைகொடிது யாழ்கோடு செவ்விதுஆங் கன்ன**  
-> **வினைபடு பாலால் கொளல்.**" — *குறள் 279*
+> "**சிறுமையுவு நீங்கிய இன்சொல் மறுமையும்**  
+> **இம்மையும் இன்பம் தரும்.**" — *குறள் 98*
 
 </div>
 
 **பொருள்:**  
-நேராகத் தோன்றும் அம்பு, கொலைச் செயல் புரியும். வளைந்து தோன்றும் யாழ், இசை, இன்பம் பயக்கும். அது போலவே மக்களின் பண்புகளையும் அவர்களது செயலால் மட்டுமே உணர்ந்து கொள்ள வேண்டும்.
+சிறுமைத்தனமற்ற இனியசொல் ஒருவனுக்கு அவன் வாழும் போதும், வாழ்ந்து மறைந்த பிறகும் புகழைத் தரக்கூடியதாகும்.
 
 **Meaning (English):**  
-As, in its use, the arrow is crooked, and the curved lute is straight, so by their deeds, (and not by their appearance) let (the uprightness or crookedness of) men be estimated.
+Sweet speech, free from harm to others, will give pleasure both in this world and in the next.
 
 
 ## 

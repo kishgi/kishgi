@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சிறுமையுவு நீங்கிய இன்சொல் மறுமையும்**  
-> **இம்மையும் இன்பம் தரும்.**" — *குறள் 98*
+> "**சிறுமை பலசெய்து சீரழிக்கும் சூதின்**  
+> **வறுமை தருவதொன்று இல்.**" — *குறள் 934*
 
 </div>
 
 **பொருள்:**  
-சிறுமைத்தனமற்ற இனியசொல் ஒருவனுக்கு அவன் வாழும் போதும், வாழ்ந்து மறைந்த பிறகும் புகழைத் தரக்கூடியதாகும்.
+பல துன்பங்களுக்கு ஆளாக்கி, புகழைப் கெடுத்த, வறுமையிலும் ஆழ்த்துவதற்குச் சூதாட்டத்தைப் போன்ற தீமையான செயல் வேறொன்றும் இல்லை.
 
 **Meaning (English):**  
-Sweet speech, free from harm to others, will give pleasure both in this world and in the next.
+There is nothing else that brings (us) poverty like gambling which causes many a misery and destroys (one’s) reputation.
 
 
 ## 

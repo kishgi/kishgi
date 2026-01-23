@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சிறுமை பலசெய்து சீரழிக்கும் சூதின்**  
-> **வறுமை தருவதொன்று இல்.**" — *குறள் 934*
+> "**மேலிருந்தும் மேலல்லார் மேலல்லர் கீழிருந்தும்**  
+> **கீழல்லார் கீழல் லவர்.**" — *குறள் 973*
 
 </div>
 
 **பொருள்:**  
-பல துன்பங்களுக்கு ஆளாக்கி, புகழைப் கெடுத்த, வறுமையிலும் ஆழ்த்துவதற்குச் சூதாட்டத்தைப் போன்ற தீமையான செயல் வேறொன்றும் இல்லை.
+பண்பு இல்லாதவர்கள் உயர்ந்த பதவியில் இருந்தாலும் உயர்ந்தோர் அல்லர்; இழிவான காரியங்களில் ஈ.டுபடாதவர்கள் தாழ்ந்த நிலையில் இருந்தாலும் உயர்ந்தோரேயாவார்கள்.
 
 **Meaning (English):**  
-There is nothing else that brings (us) poverty like gambling which causes many a misery and destroys (one’s) reputation.
+Though (raised) above, the base cannot become great; though (brought) low,the great cannot become base.
 
 
 ## 

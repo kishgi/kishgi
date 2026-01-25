@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சீரினும் சீரல்ல செய்யாரே சீரொடு**  
-> **பேராண்மை வேண்டு பவர்.**" — *குறள் 962*
+> "**தவஞ் செய்வார் தங்கருமஞ் செய்வார்மற் றல்லார்**  
+> **அவஞ்செய்வார் ஆசையுட் பட்டு.**" — *குறள் 266*
 
 </div>
 
 **பொருள்:**  
-புகழ்மிக்க வீர வாழ்க்கையை விரும்புகிறவர், தனக்கு எப்படியும் புகழ் வரவேண்டுமென்பதற்காக மான உணர்வுக்குப் புறம்பான காரியத்தில் ஈ.டுபடமாட்டார்.
+அடக்கமும், அன்பு நெறியும், துன்பங்களைத் தாங்கும் பொறுமையும் வாய்ந்த தவம் மேற்கொண்டவர்கள் மட்டுமே தமது கடமையைச் செய்பவர்கள்; அதற்கு மாறானவர்கள், ஆசையால் அலைக்கழிக்கப்பட்டு வீணான செயல்களில் ஈ.டுபடுபவர்கள்.
 
 **Meaning (English):**  
-Those who desire (to maintain their) honour, will surely do nothing dishonourable, even for the sake of fame.
+Those discharge their duty who perform austerities; all others accomplish their own destruction, through the entanglement of the desire (of riches and sensual pleasure).
 
 
 ## 

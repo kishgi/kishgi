@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இயற்றலும் ஈட்டலுங் காத்தலும் காத்த**  
-> **வகுத்தலும் வல்ல தரசு.**" — *குறள் 385*
+> "**அன்புற்று அமர்ந்த வழக்கென்ப வையகத்து**  
+> **இன்புற்றார் எய்தும் சிறப்பு.**" — *குறள் 75*
 
 </div>
 
 **பொருள்:**  
-முறையாக நிதி ஆதாரங்களை வகுத்து, அரசாங்கக் கருவூலத்திற்கான வருவாயைப் பெருக்கி, அதைப் பாதுக்காத்துத் திட்டமிட்டுச் செலவிடுவதுதான் திறமையான நல்லாட்சிக்கு இலக்கணமாகும்.
+உலகில் இன்புற்று வாழ்கின்றவர்க்கு வாய்க்கும் சிறப்பு, அவர் அன்புள்ளம் கொண்டவராக விளங்குவதன் பயனே என்று கூறலாம்.
 
 **Meaning (English):**  
-He is a king who is able to acquire (wealth), to lay it up, to guard, and to distribute it.
+They say that the felicity which those who, after enjoying the pleasure (of the conjugal state) in this world, obtain in heaven is the result of their domestic state imbued with love.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அன்புற்று அமர்ந்த வழக்கென்ப வையகத்து**  
-> **இன்புற்றார் எய்தும் சிறப்பு.**" — *குறள் 75*
+> "**தற்காத்துத் தற்கொண்டாற் பேணித் தகைசான்ற**  
+> **சொற்காத்துச் சோர்விலாள் பெண்.**" — *குறள் 56*
 
 </div>
 
 **பொருள்:**  
-உலகில் இன்புற்று வாழ்கின்றவர்க்கு வாய்க்கும் சிறப்பு, அவர் அன்புள்ளம் கொண்டவராக விளங்குவதன் பயனே என்று கூறலாம்.
+கற்புநெறியில் தன்னையும் தன் கணவனையும் காத்துக் கொண்டு, தமக்குப் பெருமை சேர்க்கும் புகழையும் காப்பாற்றிக் கொள்வதில் உறுதி குலையாமல் இருப்பவள் பெண்.
 
 **Meaning (English):**  
-They say that the felicity which those who, after enjoying the pleasure (of the conjugal state) in this world, obtain in heaven is the result of their domestic state imbued with love.
+She is a wife who unweariedly guards herself, takes care of her husband, and preserves an unsullied fame.
 
 
 ## 

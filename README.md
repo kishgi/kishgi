@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஙல்லும்வா யெல்லாம் வினைநன்றே ஒல்லாக்கால்**  
-> **செல்லும்வாய் நோக்கிச் செயல்.**" — *குறள் 673*
+> "**வலியில் நிலைமையான் வல்லுருவம் பெற்றம்**  
+> **புலியின்தோல் போர்த்துமேய்ந் தற்று.**" — *குறள் 273*
 
 </div>
 
 **பொருள்:**  
-இயலும் இடங்களில் எல்லாம் செயல் முடிப்பது நலம் தரும். இயலாத இடமாயின் அதற்கேற்ற வழியை அறிந்து அந்தச் செயலை முடிக்க வேண்டும்.
+மனத்தை அடக்க முடியாதவர் துறவுக்கோலம் பூணுவது, பசு ஒன்று புலித்தோலைப் போர்த்திக் கொண்டு பயிரை மேய்வது போன்றதாகும்.
 
 **Meaning (English):**  
-Direct action is good whenever feasible, but when it is not, seek other means of success.
+The assumed appearance of power, by a man who has no power (to restrain his senses and perform austerity), is like a cow feeding on grass covered with a tiger’s skin.
 
 
 ## 

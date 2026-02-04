@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வலியில் நிலைமையான் வல்லுருவம் பெற்றம்**  
-> **புலியின்தோல் போர்த்துமேய்ந் தற்று.**" — *குறள் 273*
+> "**செறிவறிந்து சீர்மை பயக்கும் அறிவறிந்து**  
+> **ஆற்றின் அடங்கப் பெறின்.**" — *குறள் 123*
 
 </div>
 
 **பொருள்:**  
-மனத்தை அடக்க முடியாதவர் துறவுக்கோலம் பூணுவது, பசு ஒன்று புலித்தோலைப் போர்த்திக் கொண்டு பயிரை மேய்வது போன்றதாகும்.
+அறிந்து கொள்ள வேண்டியவற்றை அறிந்து அதற்கேற்ப அடக்கத்துடன் நடந்து கொள்பவரின் பண்பை உணர்ந்து பாராட்டுகள் குவியும்.
 
 **Meaning (English):**  
-The assumed appearance of power, by a man who has no power (to restrain his senses and perform austerity), is like a cow feeding on grass covered with a tiger’s skin.
+Knowing that self-control is knowledge, if a man should control himself, in the prescribed course, such self-control will bring him distinction among the wise.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**செறிவறிந்து சீர்மை பயக்கும் அறிவறிந்து**  
-> **ஆற்றின் அடங்கப் பெறின்.**" — *குறள் 123*
+> "**இயல்பினான் இல்வாழ்க்கை வாழ்பவன் என்பான்**  
+> **முயல்வாருள் எல்லாம் தலை.**" — *குறள் 47*
 
 </div>
 
 **பொருள்:**  
-அறிந்து கொள்ள வேண்டியவற்றை அறிந்து அதற்கேற்ப அடக்கத்துடன் நடந்து கொள்பவரின் பண்பை உணர்ந்து பாராட்டுகள் குவியும்.
+நல்வாழ்வுக்கான முயற்சிகளை மேற்கொள்வோரில் தலையானவராகத் திகழ்பவர், இல்வாழ்வின் இலக்கணமுணர்ந்து அதற்கேற்ப வாழ்பவர்தான்.
 
 **Meaning (English):**  
-Knowing that self-control is knowledge, if a man should control himself, in the prescribed course, such self-control will bring him distinction among the wise.
+Among all those who labour (for future happiness) he is greatest who lives well in the household state.
 
 
 ## 

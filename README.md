@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இயல்பினான் இல்வாழ்க்கை வாழ்பவன் என்பான்**  
-> **முயல்வாருள் எல்லாம் தலை.**" — *குறள் 47*
+> "**பகல்கருதிப் பற்றா செயினும் இகல்கருதி**  
+> **இன்னாசெய் யாமை தலை.**" — *குறள் 852*
 
 </div>
 
 **பொருள்:**  
-நல்வாழ்வுக்கான முயற்சிகளை மேற்கொள்வோரில் தலையானவராகத் திகழ்பவர், இல்வாழ்வின் இலக்கணமுணர்ந்து அதற்கேற்ப வாழ்பவர்தான்.
+வேற்றுமை கருதி வெறுப்பான செயல்களில் ஒருவன் ஈ.டுபடுகிறான் என்றாலும் அவனோடு கொண்டுள்ள மாறுபாடு காரணமாக அவனுக்குத் துன்பம் தரும் எதனையும் செய்யாதிருப்பதே சிறந்த பண்பாகும்.
 
 **Meaning (English):**  
-Among all those who labour (for future happiness) he is greatest who lives well in the household state.
+Though disagreeable things may be done from (a feeling of) disunion, it is far better that nothing painful be done from (that of) hatred.
 
 
 ## 

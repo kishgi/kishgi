@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பகல்கருதிப் பற்றா செயினும் இகல்கருதி**  
-> **இன்னாசெய் யாமை தலை.**" — *குறள் 852*
+> "**நினைத்தொன்று சொல்லாயோ நெஞ்சே எனைத்தொன்றும்**  
+> **எவ்வநோய் தீர்க்கும் மருந்து.**" — *குறள் 1241*
 
 </div>
 
 **பொருள்:**  
-வேற்றுமை கருதி வெறுப்பான செயல்களில் ஒருவன் ஈ.டுபடுகிறான் என்றாலும் அவனோடு கொண்டுள்ள மாறுபாடு காரணமாக அவனுக்குத் துன்பம் தரும் எதனையும் செய்யாதிருப்பதே சிறந்த பண்பாகும்.
+எந்த மருந்தினாலும் தீராத என் காதல் நோய் தீர்ந்திட ஏதாவது ஒரு மருந்தை நினைத்துப் பார்த்து, நெஞ்சே! உன்னால் சொல்ல முடியுமா?.
 
 **Meaning (English):**  
-Though disagreeable things may be done from (a feeling of) disunion, it is far better that nothing painful be done from (that of) hatred.
+O my soul, will you not think and tell me some medicine be it what it may, that can cure this incurable malady?
 
 
 ## 

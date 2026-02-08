@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நினைத்தொன்று சொல்லாயோ நெஞ்சே எனைத்தொன்றும்**  
-> **எவ்வநோய் தீர்க்கும் மருந்து.**" — *குறள் 1241*
+> "**கூழுங் குடியும் ஒருங்கிழக்கும் கோல்கோடிச்**  
+> **சூழாது செய்யும் அரசு.**" — *குறள் 554*
 
 </div>
 
 **பொருள்:**  
-எந்த மருந்தினாலும் தீராத என் காதல் நோய் தீர்ந்திட ஏதாவது ஒரு மருந்தை நினைத்துப் பார்த்து, நெஞ்சே! உன்னால் சொல்ல முடியுமா?.
+நாட்டுநிலை ஆராயாமல் கொடுங்கோல் புரியும் அரசு, நிதி ஆதாரத்தையும் மக்களின் மதிப்பையும் இழந்துவிடும்.
 
 **Meaning (English):**  
-O my soul, will you not think and tell me some medicine be it what it may, that can cure this incurable malady?
+The king, who, without reflecting (on its evil consequences), perverts justice, will lose at once both his wealth and his subjects.
 
 
 ## 

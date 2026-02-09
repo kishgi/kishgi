@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கூழுங் குடியும் ஒருங்கிழக்கும் கோல்கோடிச்**  
-> **சூழாது செய்யும் அரசு.**" — *குறள் 554*
+> "**அழுக்காறு உடையார்க்கு அதுசாலும் ஒன்னார்**  
+> **வழுக்காயும் கேடீன் பது.**" — *குறள் 165*
 
 </div>
 
 **பொருள்:**  
-நாட்டுநிலை ஆராயாமல் கொடுங்கோல் புரியும் அரசு, நிதி ஆதாரத்தையும் மக்களின் மதிப்பையும் இழந்துவிடும்.
+பொறாமைக் குணம் கொண்டவர்களுக்கு அவர்களை வீழ்த்த வேறு பகையே வேண்டா. அந்தக் குணமே அவர்களை வீழ்த்தி விடும்.
 
 **Meaning (English):**  
-The king, who, without reflecting (on its evil consequences), perverts justice, will lose at once both his wealth and his subjects.
+To those who cherish envy that is enough. Though free from enemies that (envy) will bring destruction.
 
 
 ## 

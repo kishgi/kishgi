@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அழுக்காறு உடையார்க்கு அதுசாலும் ஒன்னார்**  
-> **வழுக்காயும் கேடீன் பது.**" — *குறள் 165*
+> "**மணியில் திகழ்தரு நூல்போல் மடந்தை**  
+> **அணியில் திகழ்வதொன்று உண்டு.**" — *குறள் 1273*
 
 </div>
 
 **பொருள்:**  
-பொறாமைக் குணம் கொண்டவர்களுக்கு அவர்களை வீழ்த்த வேறு பகையே வேண்டா. அந்தக் குணமே அவர்களை வீழ்த்தி விடும்.
+மணியாரத்திற்குள் மறைந்திருக்கும் நூலைப்போல இந்த மடந்தையின் அழகுக்குள்ளே என்னை மயக்கும் குறிப்பு ஒன்று உளது.
 
 **Meaning (English):**  
-To those who cherish envy that is enough. Though free from enemies that (envy) will bring destruction.
+There is something that is implied in the beauty of this woman, like the thread that is visible in a garland of gems.
 
 
 ## 

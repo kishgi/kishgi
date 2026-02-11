@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மணியில் திகழ்தரு நூல்போல் மடந்தை**  
-> **அணியில் திகழ்வதொன்று உண்டு.**" — *குறள் 1273*
+> "**மயிர்நீப்பின் வாழாக் கவரிமா அன்னார்**  
+> **உயிர்நீப்பர் மானம் வரின்.**" — *குறள் 969*
 
 </div>
 
 **பொருள்:**  
-மணியாரத்திற்குள் மறைந்திருக்கும் நூலைப்போல இந்த மடந்தையின் அழகுக்குள்ளே என்னை மயக்கும் குறிப்பு ஒன்று உளது.
+உடலில் உள்ள உரோமம் நீக்கப்பட்டால் உயிர் வாழாது கவரிமான் என்பார்கள். அதுபோல் மானம் அழிய நேர்ந்தால் உயர்ந்த மனிதர்கள் உயிரையே விட்டு விடுவார்கள்.
 
 **Meaning (English):**  
-There is something that is implied in the beauty of this woman, like the thread that is visible in a garland of gems.
+Those who give up (their) life when (their) honour is at stake are like the yark which kills itself at the loss of (even one of) its hairs.
 
 
 ## 

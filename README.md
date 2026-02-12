@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மயிர்நீப்பின் வாழாக் கவரிமா அன்னார்**  
-> **உயிர்நீப்பர் மானம் வரின்.**" — *குறள் 969*
+> "**தாம்வீழ்வார் தம்வீழப் பெற்றவர் பெற்றாரே**  
+> **காமத்துக் காழில் கனி.**" — *குறள் 1191*
 
 </div>
 
 **பொருள்:**  
-உடலில் உள்ள உரோமம் நீக்கப்பட்டால் உயிர் வாழாது கவரிமான் என்பார்கள். அதுபோல் மானம் அழிய நேர்ந்தால் உயர்ந்த மனிதர்கள் உயிரையே விட்டு விடுவார்கள்.
+தம்மால் விரும்பப்படும் காதலர், தம்மை விரும்புகிற பேறு பெற்றவர் விதையில்லாத பழத்தைப் போன்ற காதல் வாழ்க்கையின் பயனைப் பெற்றவராவார்.
 
 **Meaning (English):**  
-Those who give up (their) life when (their) honour is at stake are like the yark which kills itself at the loss of (even one of) its hairs.
+The women who are beloved by those whom they love, have they have not got the stone-less fruit of sexual delight ?
 
 
 ## 

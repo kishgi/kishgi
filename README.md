@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தாம்வீழ்வார் தம்வீழப் பெற்றவர் பெற்றாரே**  
-> **காமத்துக் காழில் கனி.**" — *குறள் 1191*
+> "**கண்ணோட்டம் என்னும் கழிபெருங் காரிகை**  
+> **உண்மையான் உண்டிவ் வுலகு.**" — *குறள் 571*
 
 </div>
 
 **பொருள்:**  
-தம்மால் விரும்பப்படும் காதலர், தம்மை விரும்புகிற பேறு பெற்றவர் விதையில்லாத பழத்தைப் போன்ற காதல் வாழ்க்கையின் பயனைப் பெற்றவராவார்.
+இந்த உலகம், அன்பும் இரக்கமும் இணைந்த கண்ணோட்டம் எனப்படுகிற பெரும் அழகைக் கொண்டவர்கள் இருப்பதால்தான் பெருமை அடைகிறது.
 
 **Meaning (English):**  
-The women who are beloved by those whom they love, have they have not got the stone-less fruit of sexual delight ?
+The world exists through that greatest ornament (of princes), a gracious demeanour.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கண்ணோட்டம் என்னும் கழிபெருங் காரிகை**  
-> **உண்மையான் உண்டிவ் வுலகு.**" — *குறள் 571*
+> "**வன்கண் குடிகாத்தல் கற்றறிதல் ஆள்வினையோடு**  
+> **ஐந்துடன் மாண்டது அமைச்சு.**" — *குறள் 632*
 
 </div>
 
 **பொருள்:**  
-இந்த உலகம், அன்பும் இரக்கமும் இணைந்த கண்ணோட்டம் எனப்படுகிற பெரும் அழகைக் கொண்டவர்கள் இருப்பதால்தான் பெருமை அடைகிறது.
+அமைச்சரவை என்பது, துணிவுடன் செயல்படுதல், குடிகளைப் பாதுகாத்தல், அறநூல்களைக் கற்றல், ஆவன செய்திட அறிதல், அயராத முயற்சி ஆகிய ஐந்தும் கொண்டதாக விளங்க வேண்டும்.
 
 **Meaning (English):**  
-The world exists through that greatest ornament (of princes), a gracious demeanour.
+The minister is one who in addition to the aforesaid five things excels in the possession of firmness, protection of subjects, clearness by learning, and perseverance.
 
 
 ## 

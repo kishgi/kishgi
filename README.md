@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வன்கண் குடிகாத்தல் கற்றறிதல் ஆள்வினையோடு**  
-> **ஐந்துடன் மாண்டது அமைச்சு.**" — *குறள் 632*
+> "**ஐயத்தின் நீங்கித் தெளிந்தார்க்கு வையத்தின்**  
+> **வானம் நணிய துடைத்து.**" — *குறள் 353*
 
 </div>
 
 **பொருள்:**  
-அமைச்சரவை என்பது, துணிவுடன் செயல்படுதல், குடிகளைப் பாதுகாத்தல், அறநூல்களைக் கற்றல், ஆவன செய்திட அறிதல், அயராத முயற்சி ஆகிய ஐந்தும் கொண்டதாக விளங்க வேண்டும்.
+ஐயப்பாடுகளைத் தெளிந்த ஆராய்ச்சி வாயிலாகத் தீர்த்துக் கொண்டவர்களுக்குப் பூமியைவிட வானம் மிக அருகில் இருப்பதாகக் கருதுகின்ற ஊக்கம் ஏற்படும்.
 
 **Meaning (English):**  
-The minister is one who in addition to the aforesaid five things excels in the possession of firmness, protection of subjects, clearness by learning, and perseverance.
+Heaven is nearer than earth to those men of purified minds who are freed from from doubt.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வருமுன்னர்க் காவாதான் வாழ்க்கை எரிமுன்னர்**  
-> **வைத்தூறு போலக் கெடும்.**" — *குறள் 435*
+> "**பெண்ணியலார் எல்லாரும் கண்ணின் பொதுஉண்பர்**  
+> **நண்ணேன் பரத்தநின் மார்பு.**" — *குறள் 1311*
 
 </div>
 
 **பொருள்:**  
-முன்கூட்டியே எச்சரிக்கையாக இருந்து ஒரு தவறான செயலைத் தவிர்த்துக் கொள்ளாதவருடைய வாழ்க்கையானது நெருப்பின் முன்னால் உள்ள வைக்கோல் போர் போலக் கருகிவிடும்.
+பெண்ணாக இருப்போர் எல்லோருமே, பொதுவாக நினைத்துக் கண்களால் உண்பதால் கற்பு நெறிகெட்ட உன் பரந்த மார்பைப் பாவை நான் தழுவ மாட்டேன்.
 
 **Meaning (English):**  
-The prosperity of him who does not timely guard against faults, will perish like straw before fire.
+You are given to prostitution; all those who are born as womankind enjoy you with their eyes in an ordinary way. I will not embrace you.
 
 
 ## 

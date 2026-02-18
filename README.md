@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பெண்ணியலார் எல்லாரும் கண்ணின் பொதுஉண்பர்**  
-> **நண்ணேன் பரத்தநின் மார்பு.**" — *குறள் 1311*
+> "**கண்ணோட்டம் என்னும் கழிபெருங் காரிகை**  
+> **உண்மையான் உண்டிவ் வுலகு.**" — *குறள் 571*
 
 </div>
 
 **பொருள்:**  
-பெண்ணாக இருப்போர் எல்லோருமே, பொதுவாக நினைத்துக் கண்களால் உண்பதால் கற்பு நெறிகெட்ட உன் பரந்த மார்பைப் பாவை நான் தழுவ மாட்டேன்.
+இந்த உலகம், அன்பும் இரக்கமும் இணைந்த கண்ணோட்டம் எனப்படுகிற பெரும் அழகைக் கொண்டவர்கள் இருப்பதால்தான் பெருமை அடைகிறது.
 
 **Meaning (English):**  
-You are given to prostitution; all those who are born as womankind enjoy you with their eyes in an ordinary way. I will not embrace you.
+The world exists through that greatest ornament (of princes), a gracious demeanour.
 
 
 ## 

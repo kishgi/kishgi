@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இன்னாசெய் தார்க்கும் இனியவே செய்யாக்கால்**  
-> **என்ன பயத்ததோ சால்பு.**" — *குறள் 987*
+> "**கூறாமை நோக்கிக் குறிப்பறிவான் எஞ்ஞான்றும்**  
+> **மாறாநீர் வையக் கணி.**" — *குறள் 701*
 
 </div>
 
 **பொருள்:**  
-தமக்குத் தீமை செய்வதற்கும் திரும்ப நன்மை செய்யாமல் விட்டுவிட்டால் சான்றாண்மை எனும் நல்ல பண்பு இருந்தும் அதனால் என்ன பயன்?.
+ஒருவர் எதுவும் பேசாமலிருக்கும் போதே அவர் என்ன நினைக்கிறார் என்பதை முகக்குறிப்பால் உணருகிறவன் உலகத்திற்கே அணியாவான்.
 
 **Meaning (English):**  
-Of what avail is perfect goodness if it cannot do pleasing things even to those who have pained (it) ?
+The minister who by looking (at the king) understands his mind without being told (of it), will be a perpetual ornament to the world which is surrounded by a never-drying sea.
 
 
 ## 

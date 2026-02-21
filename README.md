@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கூறாமை நோக்கிக் குறிப்பறிவான் எஞ்ஞான்றும்**  
-> **மாறாநீர் வையக் கணி.**" — *குறள் 701*
+> "**பணியுமாம் என்றும் பெருமை சிறுமை**  
+> **அணியுமாம் தன்னை வியந்து.**" — *குறள் 978*
 
 </div>
 
 **பொருள்:**  
-ஒருவர் எதுவும் பேசாமலிருக்கும் போதே அவர் என்ன நினைக்கிறார் என்பதை முகக்குறிப்பால் உணருகிறவன் உலகத்திற்கே அணியாவான்.
+பண்புடைய பெரியோர் எல்லோரிடமும் எப்பொழுதும் பணிவுடன் பழகுவார்கள்; பண்பு இல்லாத சிறியோர், தம்மைத் தாமே புகழ்ந்து கொண்டு இறுமாந்து கிடப்பார்கள்.
 
 **Meaning (English):**  
-The minister who by looking (at the king) understands his mind without being told (of it), will be a perpetual ornament to the world which is surrounded by a never-drying sea.
+The great will always humble himself; but the mean will exalt himself in self-admiration.
 
 
 ## 

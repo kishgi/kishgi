@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பணியுமாம் என்றும் பெருமை சிறுமை**  
-> **அணியுமாம் தன்னை வியந்து.**" — *குறள் 978*
+> "**குணனிலனாய்க் குற்றம் பலவாயின் மாற்றார்க்கு**  
+> **இனனிலனாம் ஏமாப் புடைத்து.**" — *குறள் 868*
 
 </div>
 
 **பொருள்:**  
-பண்புடைய பெரியோர் எல்லோரிடமும் எப்பொழுதும் பணிவுடன் பழகுவார்கள்; பண்பு இல்லாத சிறியோர், தம்மைத் தாமே புகழ்ந்து கொண்டு இறுமாந்து கிடப்பார்கள்.
+குணக்கேடராகவும், குற்றங்கள் மலிந்தவராகவும் ஒருவர் இருந்தால், அவர் பக்கத் துணைகளை இழந்து பகைவரால் எளிதாக வீழ்த்தப்படுவார்.
 
 **Meaning (English):**  
-The great will always humble himself; but the mean will exalt himself in self-admiration.
+He will become friendless who is without (any good) qualities. and whose faults are many; (such a character) is a help to (his) foes.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நோவற்க நொந்தது அறியார்க்கு மேவற்க**  
-> **மென்மை பகைவர் அகத்து.**" — *குறள் 877*
+> "**இடிப்பாரை இல்லாத ஏமரா மன்னன்**  
+> **கெடுப்பா ரிலானுங் கெடும்.**" — *குறள் 448*
 
 </div>
 
 **பொருள்:**  
-தனது துன்பத்தைப் பற்றி அதனை அறியாமல் இருக்கும் நண்பர்களிடம் சொல்லக்கூடாது. தனது பலவீனத்தைப் பகைவரிடம் வெளிப்படுத்திவிடக் கூடாது.
+குறையை உணர்த்துவோர் இல்லாத அரசு தானாகவே கெடும்.
 
 **Meaning (English):**  
-Relate not your sufering even to friends who are ignorant of it, nor refer to your weakness in the presence of your foes.
+The king, who is without the guard of men who can rebuke him, will perish, even though there be no one to destroy him.
 
 
 ## 

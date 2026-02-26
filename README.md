@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இடிப்பாரை இல்லாத ஏமரா மன்னன்**  
-> **கெடுப்பா ரிலானுங் கெடும்.**" — *குறள் 448*
+> "**அகனமர்ந்து செய்யாள் உறையும் முகனமர்ந்து**  
+> **நல்விருந்து ஓம்புவான் இல்.**" — *குறள் 84*
 
 </div>
 
 **பொருள்:**  
-குறையை உணர்த்துவோர் இல்லாத அரசு தானாகவே கெடும்.
+மனமகிழ்ச்சியை முகமலர்ச்சியால் காட்டி விருந்தினரை வரவேற்பவர் வீட்டில் அமர்ந்து செல்வம் எனும் திருமகள் வாழ்வாள்.
 
 **Meaning (English):**  
-The king, who is without the guard of men who can rebuke him, will perish, even though there be no one to destroy him.
+Lakshmi with joyous mind shall dwell in the house of that man who, with cheerful countenance, entertains the good as guests.
 
 
 ## 

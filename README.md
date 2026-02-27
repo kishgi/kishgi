@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அகனமர்ந்து செய்யாள் உறையும் முகனமர்ந்து**  
-> **நல்விருந்து ஓம்புவான் இல்.**" — *குறள் 84*
+> "**இல்லை தவறவர்க்கு ஆயினும் ஊடுதல்**  
+> **வல்லது அவர் அளிக்கு மாறு.**" — *குறள் 1321*
 
 </div>
 
 **பொருள்:**  
-மனமகிழ்ச்சியை முகமலர்ச்சியால் காட்டி விருந்தினரை வரவேற்பவர் வீட்டில் அமர்ந்து செல்வம் எனும் திருமகள் வாழ்வாள்.
+எந்த தவறும் இல்லாத நிலையிலும்கூட காதலர்க்கிடையே தோன்றும் ஊடல், அவர்களின் அன்பை மிகுதியாக வளர்க்கக் கூடியது.
 
 **Meaning (English):**  
-Lakshmi with joyous mind shall dwell in the house of that man who, with cheerful countenance, entertains the good as guests.
+Although my husband is free from defects, the way in which he embraces me is such as to make me feign dislike.
 
 
 ## 

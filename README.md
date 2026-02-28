@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இல்லை தவறவர்க்கு ஆயினும் ஊடுதல்**  
-> **வல்லது அவர் அளிக்கு மாறு.**" — *குறள் 1321*
+> "**பழுதெண்ணும் மந்திரியின் பக்கததுள் தெவ்வோர்**  
+> **எழுபது கோடி உறும்.**" — *குறள் 639*
 
 </div>
 
 **பொருள்:**  
-எந்த தவறும் இல்லாத நிலையிலும்கூட காதலர்க்கிடையே தோன்றும் ஊடல், அவர்களின் அன்பை மிகுதியாக வளர்க்கக் கூடியது.
+தவறான வழிமுறைகளையே சிந்தித்துச் செயல்படுகிற அமைச்சர் ஒருவர் அருகிலிருப்பதை விட எழுபது கோடி எதிரிகள் பக்கத்தில் இருப்பது எவ்வளவோ மேலாகும்.
 
 **Meaning (English):**  
-Although my husband is free from defects, the way in which he embraces me is such as to make me feign dislike.
+Far better are seventy crores of enemies (for a king) than a minister at his side who intends (his) ruin.
 
 
 ## 

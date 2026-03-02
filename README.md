@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**புலப்பல் எனச்சென்றேன் புல்லினேன் நெஞ் சம்**  
-> **கலத்தல் உறுவது கண்டு.**" — *குறள் 1259*
+> "**சுடச்சுடரும் பொன்போல் ஒளிவிடும் துன்பஞ்**  
+> **சுடச்சுட நோற்கிற் பவர்க்கு.**" — *குறள் 267*
 
 </div>
 
 **பொருள்:**  
-ஊடல் கொண்டு பிணங்குவோம் என நினைத்துதான் சென்றேன்; ஆனால் என் நெஞ்சம் என்னை விடுத்து அவருடன் கூடுவதைக் கண்டு என் பிடிவாதத்தை மறந்து தழுவிக் கொண்டேன்.
+தம்மைத் தாமே வருத்திக் கொண்டு ஒரு குறிக்கோளுக்காக நோன்பு நோற்பவர்களை எந்தத் துன்பங்கள் தாக்கினாலும் அவர்கள் சுடச்சுட ஒளிவிடும் பொன்னைப் போல் புகழ் பெற்றே உயர்வார்கள்.
 
 **Meaning (English):**  
-I said I would feign dislike and so went (away); (but) I embraced him the moment I say my mind began to unite with him!
+Just as gold is purified as heated in the fire, will those shine, who have endured the burning of pain (in frequent austerities).
 
 
 ## 

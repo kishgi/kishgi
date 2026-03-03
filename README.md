@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சுடச்சுடரும் பொன்போல் ஒளிவிடும் துன்பஞ்**  
-> **சுடச்சுட நோற்கிற் பவர்க்கு.**" — *குறள் 267*
+> "**நன்றாங்கால் நல்லவாக் காண்பவர் அன்றாங்கால்**  
+> **அல்லற் படுவ தெவன்?**" — *குறள் 379*
 
 </div>
 
 **பொருள்:**  
-தம்மைத் தாமே வருத்திக் கொண்டு ஒரு குறிக்கோளுக்காக நோன்பு நோற்பவர்களை எந்தத் துன்பங்கள் தாக்கினாலும் அவர்கள் சுடச்சுட ஒளிவிடும் பொன்னைப் போல் புகழ் பெற்றே உயர்வார்கள்.
+நன்மையும் தீமையும் வாழ்க்கையில் மாறி மாறி வரும். நன்மை கண்டு மகிழ்கிறவர்கள், தீமை விளையும்போது மட்டும் மனம் கலங்குவது ஏன்?.
 
 **Meaning (English):**  
-Just as gold is purified as heated in the fire, will those shine, who have endured the burning of pain (in frequent austerities).
+How is it that those, who are pleased with good fortune, trouble themselves when evil comes, (since both are equally the decree of fate) ?
 
 
 ## 

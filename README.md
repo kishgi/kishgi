@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நன்றாங்கால் நல்லவாக் காண்பவர் அன்றாங்கால்**  
-> **அல்லற் படுவ தெவன்?**" — *குறள் 379*
+> "**புல்லவையுள் பொச்சாந்தும் சொல்லற்க நல்லவையுள்**  
+> **நன்குசலச் சொல்லு வார்.**" — *குறள் 719*
 
 </div>
 
 **பொருள்:**  
-நன்மையும் தீமையும் வாழ்க்கையில் மாறி மாறி வரும். நன்மை கண்டு மகிழ்கிறவர்கள், தீமை விளையும்போது மட்டும் மனம் கலங்குவது ஏன்?.
+நல்லோர் நிறைந்த அவையில் மனத்தில் பதியும்படி கருத்துக்களை சொல்லும் வல்லமை பெற்றவர்கள், அறிவற்ற பொல்லாதோர் உள்ள அவையில் அறவே பேசாமாலிருப்பதே நலம்.
 
 **Meaning (English):**  
-How is it that those, who are pleased with good fortune, trouble themselves when evil comes, (since both are equally the decree of fate) ?
+Those who are able to speak good things impressively in an assembly of the good should not even forgetfully speak them in that of the low
 
 
 ## 

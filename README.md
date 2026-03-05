@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**புல்லவையுள் பொச்சாந்தும் சொல்லற்க நல்லவையுள்**  
-> **நன்குசலச் சொல்லு வார்.**" — *குறள் 719*
+> "**ஊடுக மன்னோ ஒளியிழை யாமிரப்ப**  
+> **நீடுக மன்னோ இரா.**" — *குறள் 1329*
 
 </div>
 
 **பொருள்:**  
-நல்லோர் நிறைந்த அவையில் மனத்தில் பதியும்படி கருத்துக்களை சொல்லும் வல்லமை பெற்றவர்கள், அறிவற்ற பொல்லாதோர் உள்ள அவையில் அறவே பேசாமாலிருப்பதே நலம்.
+ஒளிமிகும் அணிகளை அணிந்த இவள் இன்னும் என்னோடு ஊடட்டும், அப்போது அதிக நேரம் இருக்கும்படி நான் வேண்டிக்கொள்ள, இந்த இரவு விடியாது நீளட்டும்.
 
 **Meaning (English):**  
-Those who are able to speak good things impressively in an assembly of the good should not even forgetfully speak them in that of the low
+May the bright-jewelled one feign dislike, and may the night be prolonged for me to implore her!
 
 
 ## 

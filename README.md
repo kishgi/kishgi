@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மன்னுயிர் ஓம்பி அருளாள்வார்க்கு இல்லென்ப**  
-> **தன்னுயிர் அஞ்சும் வினை.**" — *குறள் 244*
+> "**இண்ருழ்த்தும் நாறா மலரனையர் கற்றது**  
+> **உணர விரித்துரையா தார்.**" — *குறள் 650*
 
 </div>
 
 **பொருள்:**  
-எல்லா உயிர்களிடத்தும் கருணைக்கொண்டு அவற்றைக் காத்திடுவதைக் கடமையாகக் கொண்ட சான்றோர்கள் தமது உயிரைப் பற்றிக் கவலை அடைய மாட்டார்கள்.
+கற்றதைப் பிறர் உணர்ந்து கொள்ளும் வகையில் விளக்கிச் சொல்ல முடியாதவர், கொத்தாக மலர்ந்திருந்தாலும் மணம் கமழாத மலரைப் போன்றவர்.
 
 **Meaning (English):**  
-(The wise) say that the evils, which his soul would dread, will never come upon the man who exercises kindness and protects the life (of other creatures)
+Those who are unable to set forth their acquirements (before others) are like flowers blossoming in a cluster and yet without fragrance.
 
 
 ## 

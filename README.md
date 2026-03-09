@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இண்ருழ்த்தும் நாறா மலரனையர் கற்றது**  
-> **உணர விரித்துரையா தார்.**" — *குறள் 650*
+> "**காலாழ் களரில் நரியடும் கண்ணஞ்சா**  
+> **வேலாள் முகத்த களிறு.**" — *குறள் 500*
 
 </div>
 
 **பொருள்:**  
-கற்றதைப் பிறர் உணர்ந்து கொள்ளும் வகையில் விளக்கிச் சொல்ல முடியாதவர், கொத்தாக மலர்ந்திருந்தாலும் மணம் கமழாத மலரைப் போன்றவர்.
+வேலேந்திய வீரர்களை வீழ்த்துகின்ற ஆற்றல் படைத்த யானை, சேற்றில் சிக்கி விட்டால் அதனை நரிகள் கூடக் கொன்று விடும்.
 
 **Meaning (English):**  
-Those who are unable to set forth their acquirements (before others) are like flowers blossoming in a cluster and yet without fragrance.
+A fox can kill a fearless, warrior-faced elephant, if it go into mud in which its legs sink down.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**காலாழ் களரில் நரியடும் கண்ணஞ்சா**  
-> **வேலாள் முகத்த களிறு.**" — *குறள் 500*
+> "**ஆற்றாரும் ஆற்றி அடுப இடனறிந்து**  
+> **போற்றார்கண் போற்றிச் செயின்.**" — *குறள் 493*
 
 </div>
 
 **பொருள்:**  
-வேலேந்திய வீரர்களை வீழ்த்துகின்ற ஆற்றல் படைத்த யானை, சேற்றில் சிக்கி விட்டால் அதனை நரிகள் கூடக் கொன்று விடும்.
+தாக்குதல் நடத்துவதற்குரிய இடத்தையும் தேர்ந்து, தம்மையும் காத்துக்கொண்டு பகைவருடன் மோதினால் வலிமையில்லாதவர்க்கும் வலிமை ஏற்பட்டு வெற்றி கிட்டும்.
 
 **Meaning (English):**  
-A fox can kill a fearless, warrior-faced elephant, if it go into mud in which its legs sink down.
+Even the powerless will become powerful and conquer, if they select a proper field (of action), and guard themselves, while they make war on their enemies.
 
 
 ## 

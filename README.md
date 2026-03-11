@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஆற்றாரும் ஆற்றி அடுப இடனறிந்து**  
-> **போற்றார்கண் போற்றிச் செயின்.**" — *குறள் 493*
+> "**என்னைமுன் நில்லன்மின் தெவ்விர் பலரென்னை**  
+> **முன்நின்று கல்நின் றவர்.**" — *குறள் 771*
 
 </div>
 
 **பொருள்:**  
-தாக்குதல் நடத்துவதற்குரிய இடத்தையும் தேர்ந்து, தம்மையும் காத்துக்கொண்டு பகைவருடன் மோதினால் வலிமையில்லாதவர்க்கும் வலிமை ஏற்பட்டு வெற்றி கிட்டும்.
+போர்களத்து வீரன் ஒருவன், பகைவர்களே என் தலைவனை எதிர்த்து நிற்காதீர்; அவனை எதிர்த்து நடுகல்லாய்ப் போனவர்கள் பலர் என முழங்குகிறான்.
 
 **Meaning (English):**  
-Even the powerless will become powerful and conquer, if they select a proper field (of action), and guard themselves, while they make war on their enemies.
+O my foes, stand not before my leader; (for) many are those who did so but afterwards stood (in the shape of) statues.
 
 
 ## 

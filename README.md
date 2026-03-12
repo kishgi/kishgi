@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**என்னைமுன் நில்லன்மின் தெவ்விர் பலரென்னை**  
-> **முன்நின்று கல்நின் றவர்.**" — *குறள் 771*
+> "**ஆற்றின் அறவறிந்து ஈக அதுபொருள்**  
+> **போற்றி வழங்கு நெறி.**" — *குறள் 477*
 
 </div>
 
 **பொருள்:**  
-போர்களத்து வீரன் ஒருவன், பகைவர்களே என் தலைவனை எதிர்த்து நிற்காதீர்; அவனை எதிர்த்து நடுகல்லாய்ப் போனவர்கள் பலர் என முழங்குகிறான்.
+வருவாய் அளவை அறிந்து, அதனை வகுத்து வழங்குவதே பொருளைச் சீராகக் காத்து வாழும் வழியாகும்.
 
 **Meaning (English):**  
-O my foes, stand not before my leader; (for) many are those who did so but afterwards stood (in the shape of) statues.
+Let a man know the measure of his ability (to give), and let him give accordingly; such giving is the way to preserve his property.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஆற்றின் அறவறிந்து ஈக அதுபொருள்**  
-> **போற்றி வழங்கு நெறி.**" — *குறள் 477*
+> "**எல்லார்க்கும் நன்றாம் பணிதல் அவருள்ளும்**  
+> **செல்வர்க்கே செல்வம் தகைத்து.**" — *குறள் 125*
 
 </div>
 
 **பொருள்:**  
-வருவாய் அளவை அறிந்து, அதனை வகுத்து வழங்குவதே பொருளைச் சீராகக் காத்து வாழும் வழியாகும்.
+பணிவு என்னும் பண்பு, எல்லார்க்கும் நலம் பயக்கும். ஏற்கனவே செல்வர்களாக இருப்பவர்களுக்கு அந்தப் பண்பு, மேலும் ஒரு செல்வமாகும்.
 
 **Meaning (English):**  
-Let a man know the measure of his ability (to give), and let him give accordingly; such giving is the way to preserve his property.
+Humility is good in all; but especially in the rich it is (the excellence of) higher riches.
 
 
 ## 

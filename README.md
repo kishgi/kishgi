@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**புல்லி விடாஅப் புலவியுள் தோன்றுமென்**  
-> **உள்ளம் உடைக்கும் படை.**" — *குறள் 1324*
+> "**எப்பொருள் எத்தன்மைத் தாயினும் அப்பொருள்**  
+> **மெய்ப்பொருள் காண்பது அறிவு.**" — *குறள் 355*
 
 </div>
 
 **பொருள்:**  
-என்னவரைத் தழுவிக் கொண்டு, விடாமல் இருப்பதற்குக் காரணமாகிய ஊடலில் அதற்குமேலே சென்று என் உறுதியையும் உடைக்கும் ஆயுதம் இருக்கிறது.
+வெளித்தோற்றத்தைப் பார்த்து ஏமாந்து விடாமல், அதுபற்றிய உண்மையை உணர்வதுதான் அறிவுடைமையாகும்.
 
 **Meaning (English):**  
-In prolonged dislike after an embrace there is a weapon that can break my heart.
+(True) knowledge is the perception concerning every thing of whatever kind, that that thing is the true thing.
 
 
 ## 

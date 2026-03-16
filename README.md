@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**எப்பொருள் எத்தன்மைத் தாயினும் அப்பொருள்**  
-> **மெய்ப்பொருள் காண்பது அறிவு.**" — *குறள் 355*
+> "**இன்சொலால் ஈத்தளிக்க வல்லார்க்குத் தன்சொலால்**  
+> **தான்கண் டனைத்திவ் வுலகு.**" — *குறள் 387*
 
 </div>
 
 **பொருள்:**  
-வெளித்தோற்றத்தைப் பார்த்து ஏமாந்து விடாமல், அதுபற்றிய உண்மையை உணர்வதுதான் அறிவுடைமையாகும்.
+வாக்கில் இனிமையும், பிறர்க்கு வழங்கிக் காத்திடும் தன்மையும் கொண்டவர்க்கு இவ்வையகமே வசப்படும்.
 
 **Meaning (English):**  
-(True) knowledge is the perception concerning every thing of whatever kind, that that thing is the true thing.
+The world will praise and submit itself to the mind of the king who is able to give with afability, and to protect all who come to him.
 
 
 ## 

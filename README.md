@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இன்சொலால் ஈத்தளிக்க வல்லார்க்குத் தன்சொலால்**  
-> **தான்கண் டனைத்திவ் வுலகு.**" — *குறள் 387*
+> "**புறத்துறுப் பெல்லாம் எவன்செய்யும் யாக்கை**  
+> **அகத்துறுப்பு அன்பி லவர்க்கு.**" — *குறள் 79*
 
 </div>
 
 **பொருள்:**  
-வாக்கில் இனிமையும், பிறர்க்கு வழங்கிக் காத்திடும் தன்மையும் கொண்டவர்க்கு இவ்வையகமே வசப்படும்.
+உடம்பின் அகத்து உறுப்பாகிய அன்பு இல்லாதவர்க்கு உடம்பின் புறத்து உறுப்புக்கள் எல்லாம் என்ன பயன் செய்யும்.
 
 **Meaning (English):**  
-The world will praise and submit itself to the mind of the king who is able to give with afability, and to protect all who come to him.
+Of what avail are all the external members (of the body) to those who are destitute of love, the internal member.
 
 
 ## 

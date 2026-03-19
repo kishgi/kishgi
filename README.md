@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தம்நெஞ்சத்து எம்மைக் கடிகொண்டார் நாணார்கொல்**  
-> **எம்நெஞ்சத்து ஓவா வரல்.**" — *குறள் 1205*
+> "**ஆற்று பவர்க்கும் அரண்பொருள் அஞ்சித்தற்**  
+> **போற்று பவர்க்கும் பொருள்.**" — *குறள் 741*
 
 </div>
 
 **பொருள்:**  
-அவருடைய நெஞ்சில் எமக்கு இடம் தராமல் இருப்பவர்; எம் நெஞ்சில் மட்டும் இடைவிடாமல் வந்து புகுந்து கொள்வதற்காக வெட்கப்படமாட்டார் போலும்.
+பகைவர் மீது படையெடுத்துச் செல்பவர்க்கும் கோட்டை பயன்படும்; பகைவர்க்கு அஞ்சித் தம்மைப் பாதுகாத்துக் கொள்ள முனைவோர்க்கும் கோட்டை பயன்படும்.
 
 **Meaning (English):**  
-He who has imprisoned me in his soul, is he ashamed to enter incessantly into mine.
+A fort is an object of importance to those who march (against their foes) as well as to those who through fear (of pursuers) would seek it for shelter.
 
 
 ## 

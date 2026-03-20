@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஆற்று பவர்க்கும் அரண்பொருள் அஞ்சித்தற்**  
-> **போற்று பவர்க்கும் பொருள்.**" — *குறள் 741*
+> "**கல்லாதான் சொற்கா முறுதல் முலையிரண்டும்**  
+> **இல்லாதாள் பெண்காமுற் றற்று.**" — *குறள் 402*
 
 </div>
 
 **பொருள்:**  
-பகைவர் மீது படையெடுத்துச் செல்பவர்க்கும் கோட்டை பயன்படும்; பகைவர்க்கு அஞ்சித் தம்மைப் பாதுகாத்துக் கொள்ள முனைவோர்க்கும் கோட்டை பயன்படும்.
+கல்லாதவனின் சொல்கேட்க விரும்புவது, மார்பகம் இல்லாத பெண்மீது மையல் கொள்வதற்கு ஒப்பானது.
 
 **Meaning (English):**  
-A fort is an object of importance to those who march (against their foes) as well as to those who through fear (of pursuers) would seek it for shelter.
+The desire of the unlearned to speak (in an assembly), is like a woman without breasts desiring (the enjoyment of ) woman-hood.
 
 
 ## 

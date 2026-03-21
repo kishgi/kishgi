@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கல்லாதான் சொற்கா முறுதல் முலையிரண்டும்**  
-> **இல்லாதாள் பெண்காமுற் றற்று.**" — *குறள் 402*
+> "**தொடங்கற்க எவ்வினையும் எள்ளற்க முற்றும்**  
+> **இடங்கண்ட பின்அல் லது.**" — *குறள் 491*
 
 </div>
 
 **பொருள்:**  
-கல்லாதவனின் சொல்கேட்க விரும்புவது, மார்பகம் இல்லாத பெண்மீது மையல் கொள்வதற்கு ஒப்பானது.
+ஈடுபடும் செயல் ஒன்றும் பெரிதல்ல என இகழ்ச்சியாகக் கருதாமல், முற்றிலும் சரியான இடத்தைத் தேர்ந்தெடுத்து அச்செயலில் இறங்க வேண்டும்.
 
 **Meaning (English):**  
-The desire of the unlearned to speak (in an assembly), is like a woman without breasts desiring (the enjoyment of ) woman-hood.
+Let not (a king) despise (an enemy), nor undertake any thing (against him), until he has obtained (a suitable) place for besieging him.
 
 
 ## 

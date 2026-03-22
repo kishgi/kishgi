@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தொடங்கற்க எவ்வினையும் எள்ளற்க முற்றும்**  
-> **இடங்கண்ட பின்அல் லது.**" — *குறள் 491*
+> "**கனவினான் உண்டாகும் காமம் நனவினான்**  
+> **நல்காரை நாடித் தரற்கு.**" — *குறள் 1214*
 
 </div>
 
 **பொருள்:**  
-ஈடுபடும் செயல் ஒன்றும் பெரிதல்ல என இகழ்ச்சியாகக் கருதாமல், முற்றிலும் சரியான இடத்தைத் தேர்ந்தெடுத்து அச்செயலில் இறங்க வேண்டும்.
+நேரில் என்னிடம் வந்து அன்பு காட்டாத காதலரைத் தேடிக் கொண்டு வந்து காட்டுகிற கனவால் எனக்குக் காதல் இன்பம் கிடைக்கிறது.
 
 **Meaning (English):**  
-Let not (a king) despise (an enemy), nor undertake any thing (against him), until he has obtained (a suitable) place for besieging him.
+There is pleasure in my dream, because in it I seek and obtain him who does not visit me in my wakefulness.
 
 
 ## 

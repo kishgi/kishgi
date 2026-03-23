@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கனவினான் உண்டாகும் காமம் நனவினான்**  
-> **நல்காரை நாடித் தரற்கு.**" — *குறள் 1214*
+> "**அடல்வேண்டும் ஐந்தன் புலத்தை விடல்வேண்டும்**  
+> **வேண்டிய வெல்லாம் ஒருங்கு.**" — *குறள் 343*
 
 </div>
 
 **பொருள்:**  
-நேரில் என்னிடம் வந்து அன்பு காட்டாத காதலரைத் தேடிக் கொண்டு வந்து காட்டுகிற கனவால் எனக்குக் காதல் இன்பம் கிடைக்கிறது.
+ஐம் புலன்களையும் அடக்கி வெல்வதும், அப்புலன்கள் விரும்புகின்றவற்றை யெல்லாம் விட்டுவிடுவதும் துறவுக்கு இலக்கணமாகும்.
 
 **Meaning (English):**  
-There is pleasure in my dream, because in it I seek and obtain him who does not visit me in my wakefulness.
+Let the five senses be destroyed; and at the same time, let everything be abandoned that (the ascetic) has (formerly) desired.
 
 
 ## 

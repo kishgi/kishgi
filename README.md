@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அடல்வேண்டும் ஐந்தன் புலத்தை விடல்வேண்டும்**  
-> **வேண்டிய வெல்லாம் ஒருங்கு.**" — *குறள் 343*
+> "**விளிந்தாரின் வேறல்லர் மன்ற தெளிந்தாரில்**  
+> **தீமை புரிந்து ஒழுகு வார்.**" — *குறள் 143*
 
 </div>
 
 **பொருள்:**  
-ஐம் புலன்களையும் அடக்கி வெல்வதும், அப்புலன்கள் விரும்புகின்றவற்றை யெல்லாம் விட்டுவிடுவதும் துறவுக்கு இலக்கணமாகும்.
+நம்பி பழகியவர் வீட்டில், அவரது மனைவியிடம் தகாத செயலில் ஈ.டுபட முனைகிறவன், உயிர் இருந்தும் பிணத்திற்கு ஒப்பானவனேயாவான்.
 
 **Meaning (English):**  
-Let the five senses be destroyed; and at the same time, let everything be abandoned that (the ascetic) has (formerly) desired.
+Certainly they are no better than dead men who desire evil towards the wife of those who undoubtingly confide in them.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**விளிந்தாரின் வேறல்லர் மன்ற தெளிந்தாரில்**  
-> **தீமை புரிந்து ஒழுகு வார்.**" — *குறள் 143*
+> "**எல்லார்க்கும் நன்றாம் பணிதல் அவருள்ளும்**  
+> **செல்வர்க்கே செல்வம் தகைத்து.**" — *குறள் 125*
 
 </div>
 
 **பொருள்:**  
-நம்பி பழகியவர் வீட்டில், அவரது மனைவியிடம் தகாத செயலில் ஈ.டுபட முனைகிறவன், உயிர் இருந்தும் பிணத்திற்கு ஒப்பானவனேயாவான்.
+பணிவு என்னும் பண்பு, எல்லார்க்கும் நலம் பயக்கும். ஏற்கனவே செல்வர்களாக இருப்பவர்களுக்கு அந்தப் பண்பு, மேலும் ஒரு செல்வமாகும்.
 
 **Meaning (English):**  
-Certainly they are no better than dead men who desire evil towards the wife of those who undoubtingly confide in them.
+Humility is good in all; but especially in the rich it is (the excellence of) higher riches.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறன்நோக்கி ஆற்றுங்கொல் வையம் புறன்நோக்கிப்**  
-> **புன்சொல் உரைப்பான் பொறை.**" — *குறள் 189*
+> "**விரைந்து தொழில்கேட்கும் ஞாலம் நிரந்தினிது**  
+> **சொல்லுதல் வல்லார்ப் பெறின்.**" — *குறள் 648*
 
 </div>
 
 **பொருள்:**  
-ஒருவர் நேரில் இல்லாதபோது பழிச்சொல் கூறுவோனுடைய உடலை இவனைச் சுமப்பதும் அறமே என்று கருதித்தான் நிலம் சுமக்கிறது.
+வகைப்படுத்தியும், சுவையாகவும் கருத்துக்களைச் சொல்லும் வல்லமையுடையோர் சுட்டிக்காட்டும் பணியை, உலகத்தார் உடனடியாக நிறைவேற்ற முனைவார்கள்.
 
 **Meaning (English):**  
-The world through charity supports the weight of those who reproach others observing their absence.
+If there be those who can speak on various subjects in their proper order and in a pleasing manner, the world would readily accept them.
 
 
 ## 

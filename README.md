@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**விரைந்து தொழில்கேட்கும் ஞாலம் நிரந்தினிது**  
-> **சொல்லுதல் வல்லார்ப் பெறின்.**" — *குறள் 648*
+> "**வினைக்கண் வினையுடையான் கேண்மைவே றாக**  
+> **நினைப்பானை நீங்கும் திரு.**" — *குறள் 519*
 
 </div>
 
 **பொருள்:**  
-வகைப்படுத்தியும், சுவையாகவும் கருத்துக்களைச் சொல்லும் வல்லமையுடையோர் சுட்டிக்காட்டும் பணியை, உலகத்தார் உடனடியாக நிறைவேற்ற முனைவார்கள்.
+எடுத்த காரியத்தை முடிப்பதில் கண்ணும் கருத்துமாக இருப்பவரின் உறவைத் தவறாக எண்ணுபவரை விட்டுப் பெருமை அகன்று விடும்.
 
 **Meaning (English):**  
-If there be those who can speak on various subjects in their proper order and in a pleasing manner, the world would readily accept them.
+Prosperity will leave (the king) who doubts the friendship of the man who steadily labours in the discharge of his duties.
 
 
 ## 

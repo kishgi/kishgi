@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வினைக்கண் வினையுடையான் கேண்மைவே றாக**  
-> **நினைப்பானை நீங்கும் திரு.**" — *குறள் 519*
+> "**பேதைமை என்பதொன்று யாதெனின் ஏதங்கொண்டு**  
+> **ஊதியம் போக விடல்.**" — *குறள் 831*
 
 </div>
 
 **பொருள்:**  
-எடுத்த காரியத்தை முடிப்பதில் கண்ணும் கருத்துமாக இருப்பவரின் உறவைத் தவறாக எண்ணுபவரை விட்டுப் பெருமை அகன்று விடும்.
+கேடு விளைவிப்பது எது? நன்மை தருவது எது? என்று தெளிவடையாமல் நன்மையை விடுத்துத் தீமையை நாடுவதே பேதைமை என்பதற்கான எடுத்துக்காட்டாகும்.
 
 **Meaning (English):**  
-Prosperity will leave (the king) who doubts the friendship of the man who steadily labours in the discharge of his duties.
+Folly is one (of the chief defects); it is that which (makes one) incur loss and forego gain.
 
 
 ## 

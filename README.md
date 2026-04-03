@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பேதைமை என்பதொன்று யாதெனின் ஏதங்கொண்டு**  
-> **ஊதியம் போக விடல்.**" — *குறள் 831*
+> "**இடுக்கண் படினும் இளிவந்த செய்யார்**  
+> **நடுக்கற்ற காட்சி யவர்.**" — *குறள் 654*
 
 </div>
 
 **பொருள்:**  
-கேடு விளைவிப்பது எது? நன்மை தருவது எது? என்று தெளிவடையாமல் நன்மையை விடுத்துத் தீமையை நாடுவதே பேதைமை என்பதற்கான எடுத்துக்காட்டாகும்.
+தெளிவான அறிவும் உறுதியும் கொண்டவர்கள் துன்பத்திலிருந்து விடுபடுவதற்காகக்கூட இழிவான செயலில் ஈடுபட மாட்டார்கள்.
 
 **Meaning (English):**  
-Folly is one (of the chief defects); it is that which (makes one) incur loss and forego gain.
+Those who have infallible judgement though threatened with peril will not do acts which have brought disgrace (on former ministers).
 
 
 ## 

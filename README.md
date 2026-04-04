@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இடுக்கண் படினும் இளிவந்த செய்யார்**  
-> **நடுக்கற்ற காட்சி யவர்.**" — *குறள் 654*
+> "**செப்பின் புணர்ச்சிபோல் கூடினும் கூடாதே**  
+> **உட்பகை உற்ற குடி.**" — *குறள் 887*
 
 </div>
 
 **பொருள்:**  
-தெளிவான அறிவும் உறுதியும் கொண்டவர்கள் துன்பத்திலிருந்து விடுபடுவதற்காகக்கூட இழிவான செயலில் ஈடுபட மாட்டார்கள்.
+செப்பு எனப்படும் சிமிழில் அதன் மூடி பொருந்தியிருப்பது போல வெளித்தோற்றத்துக்கு மட்டுமே தெரியும் அவ்வாறே உட்பகையுள்ளவர்கள் உளமாரப் பொருந்தியிருக்க மாட்டார்கள்.
 
 **Meaning (English):**  
-Those who have infallible judgement though threatened with peril will not do acts which have brought disgrace (on former ministers).
+Never indeed will a family subject to internal hatred unite (really) though it may present an apparent union like that of a casket and its lid.
 
 
 ## 

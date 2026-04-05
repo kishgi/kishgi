@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**செப்பின் புணர்ச்சிபோல் கூடினும் கூடாதே**  
-> **உட்பகை உற்ற குடி.**" — *குறள் 887*
+> "**உயிர்ப்ப உளரல்லர் மன்ற செயிர்ப்பவர்**  
+> **செம்மல் சிதைக்கலா தார்.**" — *குறள் 880*
 
 </div>
 
 **பொருள்:**  
-செப்பு எனப்படும் சிமிழில் அதன் மூடி பொருந்தியிருப்பது போல வெளித்தோற்றத்துக்கு மட்டுமே தெரியும் அவ்வாறே உட்பகையுள்ளவர்கள் உளமாரப் பொருந்தியிருக்க மாட்டார்கள்.
+பகைவரின் ஆணவத்தைக் குலைக்க முடியாதவர்கள், சுவாசிக்கிற காரணத்தினாலேயே, உயிரோடிருப்பதாக நிச்சயமாகச் சொல்ல முடியாது.
 
 **Meaning (English):**  
-Never indeed will a family subject to internal hatred unite (really) though it may present an apparent union like that of a casket and its lid.
+Those who do not destroy the pride of those who hate (them) will certainly not exist even to breathe.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உயிர்ப்ப உளரல்லர் மன்ற செயிர்ப்பவர்**  
-> **செம்மல் சிதைக்கலா தார்.**" — *குறள் 880*
+> "**விருந்து புறத்ததாத் தானுண்டல் சாவா**  
+> **மருந்தெனினும் வேண் டற்பாற் றன்று.**" — *குறள் 82*
 
 </div>
 
 **பொருள்:**  
-பகைவரின் ஆணவத்தைக் குலைக்க முடியாதவர்கள், சுவாசிக்கிற காரணத்தினாலேயே, உயிரோடிருப்பதாக நிச்சயமாகச் சொல்ல முடியாது.
+விருந்தினராக வந்தவரை வெளியே விட்டுவிட்டுச் சாகாத மருந்தாக இருந்தாலும் அதனைத் தான் மட்டும் உண்பது விரும்பத் தக்க பண்பாடல்ல.
 
 **Meaning (English):**  
-Those who do not destroy the pride of those who hate (them) will certainly not exist even to breathe.
+It is not fit that one should wish his guests to be outside (his house) even though he were eating the food of immortality.
 
 
 ## 

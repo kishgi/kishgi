@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**விருந்து புறத்ததாத் தானுண்டல் சாவா**  
-> **மருந்தெனினும் வேண் டற்பாற் றன்று.**" — *குறள் 82*
+> "**மையல் ஒருவன் களித்தற்றால் பேதைதன்**  
+> **கையொன்று உடைமை பெறின்.**" — *குறள் 838*
 
 </div>
 
 **பொருள்:**  
-விருந்தினராக வந்தவரை வெளியே விட்டுவிட்டுச் சாகாத மருந்தாக இருந்தாலும் அதனைத் தான் மட்டும் உண்பது விரும்பத் தக்க பண்பாடல்ல.
+நல்லது கெட்டது தெரியாதவன் பேதை; அந்தப் பேதையின் கையில் ஒரு பொருளும் கிடைத்துவிட்டால் பித்துப் பிடித்தவர்கள் கள்ளையும் குடித்துவிட்ட கதையாக ஆகிவிடும்.
 
 **Meaning (English):**  
-It is not fit that one should wish his guests to be outside (his house) even though he were eating the food of immortality.
+A fool happening to possess something is like the intoxication of one who is (already) giddy.
 
 
 ## 

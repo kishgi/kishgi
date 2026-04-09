@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஊழிற் பெருவலி யாவுள மற்றொன்று**  
-> **சூழினுந் தான்முந் துறும்.**" — *குறள் 380*
+> "**மாறுபாடு இல்லாத உண்டி மறுத்துண்ணின்**  
+> **ஊறுபாடு இல்லை உயிர்க்கு.**" — *குறள் 945*
 
 </div>
 
 **பொருள்:**  
-இயற்கை நிலையை மாற்றி மற்றொரு செயற்கை நிலையை அமைத்திட முனைந்தாலும், இயற்கை நிலையே முதன்மையாக வந்து நிற்பதால் அதைவிட வலிமையானவையாக வேறு எவை இருக்கின்றன?.
+உடலுக்கு ஒத்துவரக்கூடிய உணவைக்கூட அதிகமாகும்போது மறுத்து அளவுடன் உண்டால், உயிர் வாழ்வதற்குத் தொல்லை எதுவுமில்லை.
 
 **Meaning (English):**  
-What is stronger than fate ? If we think of an expedient (to avert it), it will itself be with us before (the thought).
+There will be no disaster to one’s life if one eats with moderation, food that is not disagreeable.
 
 
 ## 

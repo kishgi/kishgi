@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அவர்தந்தார் என்னும் தகையால் இவர்தந்தென்**  
-> **மேனிமேல் ஊரும் பசப்பு.**" — *குறள் 1182*
+> "**எட்பக வன்ன சிறுமைத்தே ஆயினும்**  
+> **உட்பகை உள்ளதாங் கேடு.**" — *குறள் 889*
 
 </div>
 
 **பொருள்:**  
-பிரிவு காரணமாகக் காதலர் உண்டாக்கினார் எனும் பெருமிதம் பொங்கிடப் பசலை நிறம் என் உடலில் ஏறி ஊர்ந்து பரவுகின்றது!.
+எள்ளின் பிளவுபோன்று சிறிதாக இருந்தாலும் உட்பகையால் பெருங்கேடு விளையும்.
 
 **Meaning (English):**  
-Sallowness, as if proud of having been caused by him, would now ride on my person.
+Although internal hatred be as small as the fragment of the sesamum (seed), still does destruction dwell in it.
 
 
 ## 

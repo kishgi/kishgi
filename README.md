@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**எட்பக வன்ன சிறுமைத்தே ஆயினும்**  
-> **உட்பகை உள்ளதாங் கேடு.**" — *குறள் 889*
+> "**யாரினும் காதலம் என்றேனா ஊடினாள்**  
+> **யாரினும் யாரினும் என்று.**" — *குறள் 1314*
 
 </div>
 
 **பொருள்:**  
-எள்ளின் பிளவுபோன்று சிறிதாக இருந்தாலும் உட்பகையால் பெருங்கேடு விளையும்.
+யாரைக் காட்டிலும் உன்னிடம் நான் காதல் மிகுதியாகக் கொண்டுள்ளேன் என்று இயல்பாகச் சொன்னதைக் கூடக் காதலி தவறாக எடுத்துக் கொண்டு யாரைக்காட்டிலும் யாரைக் காட்டிலும் எனக் கேட்டு ஊடல் புரியத் தொடங்கி விட்டாள்.
 
 **Meaning (English):**  
-Although internal hatred be as small as the fragment of the sesamum (seed), still does destruction dwell in it.
+When I said I loved her more than any other woman, she said 'more than others, yes, more than others,' and remained sulky.
 
 
 ## 

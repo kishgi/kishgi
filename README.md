@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**யாரினும் காதலம் என்றேனா ஊடினாள்**  
-> **யாரினும் யாரினும் என்று.**" — *குறள் 1314*
+> "**தந்நலம் பாரிப்பார் தோயார் தகைசெருக்கிப்**  
+> **புன்னலம் பாரிப்பார் தோள்.**" — *குறள் 916*
 
 </div>
 
 **பொருள்:**  
-யாரைக் காட்டிலும் உன்னிடம் நான் காதல் மிகுதியாகக் கொண்டுள்ளேன் என்று இயல்பாகச் சொன்னதைக் கூடக் காதலி தவறாக எடுத்துக் கொண்டு யாரைக்காட்டிலும் யாரைக் காட்டிலும் எனக் கேட்டு ஊடல் புரியத் தொடங்கி விட்டாள்.
+புகழ்ச்சிக்குரிய சான்றோர் எவரும், இகழ்ச்சிக்குரிய இன்பவல்லிகளின் தோளில் சாய்ந்து கிடக்க மாட்டார்.
 
 **Meaning (English):**  
-When I said I loved her more than any other woman, she said 'more than others, yes, more than others,' and remained sulky.
+Those who would spread (the fame of) their own goodness will not desire the shoulders of those,who rejoice in their accomplishments and bestow their despicable favours (on all who pay).
 
 
 ## 

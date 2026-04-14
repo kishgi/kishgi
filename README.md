@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தந்நலம் பாரிப்பார் தோயார் தகைசெருக்கிப்**  
-> **புன்னலம் பாரிப்பார் தோள்.**" — *குறள் 916*
+> "**இன்பம் விழையான் இடும்பை இயல்பென்பான்**  
+> **துன்பம் உறுதல் இலன்.**" — *குறள் 628*
 
 </div>
 
 **பொருள்:**  
-புகழ்ச்சிக்குரிய சான்றோர் எவரும், இகழ்ச்சிக்குரிய இன்பவல்லிகளின் தோளில் சாய்ந்து கிடக்க மாட்டார்.
+இன்பத்தைத் தேடி அலையாமல், துன்பம் வந்தாலும் அதை இயல்பாகக் கருதிப்கொள்பவன் அந்தத் துன்பத்தினால் துவண்டு போவதில்லை.
 
 **Meaning (English):**  
-Those who would spread (the fame of) their own goodness will not desire the shoulders of those,who rejoice in their accomplishments and bestow their despicable favours (on all who pay).
+That man never experiences sorrow, who does not seek for pleasure, and who considers distress to be natural (to man).
 
 
 ## 

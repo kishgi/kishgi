@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இன்பம் விழையான் இடும்பை இயல்பென்பான்**  
-> **துன்பம் உறுதல் இலன்.**" — *குறள் 628*
+> "**கண்ணின் பசப்போ பருவரல் எய்தின்றே**  
+> **ஒண்ணுதல் செய்தது கண்டு.**" — *குறள் 1240*
 
 </div>
 
 **பொருள்:**  
-இன்பத்தைத் தேடி அலையாமல், துன்பம் வந்தாலும் அதை இயல்பாகக் கருதிப்கொள்பவன் அந்தத் துன்பத்தினால் துவண்டு போவதில்லை.
+பிரிவுத் துயரால் பிறைநுதல் பசலை நிறமடைந்ததைக் கண்டு அவளது கண்களின் பசலையும் பெருந்துன்பம் அடைந்துவிட்டது.
 
 **Meaning (English):**  
-That man never experiences sorrow, who does not seek for pleasure, and who considers distress to be natural (to man).
+Was it at the sight of what the bright forehead had done that the sallowness of her eyes became sad?
 
 
 ## 

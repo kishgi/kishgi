@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கண்ணின் பசப்போ பருவரல் எய்தின்றே**  
-> **ஒண்ணுதல் செய்தது கண்டு.**" — *குறள் 1240*
+> "**காமக் கணிச்சி உடைக்கும் நிறையென்னும்**  
+> **நாணுத்தாழ் வீழ்த்த கதவு.**" — *குறள் 1251*
 
 </div>
 
 **பொருள்:**  
-பிரிவுத் துயரால் பிறைநுதல் பசலை நிறமடைந்ததைக் கண்டு அவளது கண்களின் பசலையும் பெருந்துன்பம் அடைந்துவிட்டது.
+காதல் வேட்கை இருக்கிறதே, அது ஒரு கோடரியாக மாறி, நாணம் எனும் தாழ்ப்பாள் போடப்பட்ட மன அடக்கம் என்கிற கதவையே உடைத்தெறிந்து விடுகின்றது.
 
 **Meaning (English):**  
-Was it at the sight of what the bright forehead had done that the sallowness of her eyes became sad?
+The axe of lust can break the door of chastity which is bolted with the bolt of modesty.
 
 
 ## 

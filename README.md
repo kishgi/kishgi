@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**காமக் கணிச்சி உடைக்கும் நிறையென்னும்**  
-> **நாணுத்தாழ் வீழ்த்த கதவு.**" — *குறள் 1251*
+> "**கரப்பிலா நெஞ்சின் கடனறிவார் முன்நின்று**  
+> **இரப்புமோ ரேஎர் உடைத்து.**" — *குறள் 1053*
 
 </div>
 
 **பொருள்:**  
-காதல் வேட்கை இருக்கிறதே, அது ஒரு கோடரியாக மாறி, நாணம் எனும் தாழ்ப்பாள் போடப்பட்ட மன அடக்கம் என்கிற கதவையே உடைத்தெறிந்து விடுகின்றது.
+உள்ளதை ஒளிக்காத உள்ளமும், கடமையுணர்வும் கொண்டவரிடத்தில் தனது வறுமை காரணமாக இரந்து கேட்பதும் பெருமையுடையதே யாகும்.
 
 **Meaning (English):**  
-The axe of lust can break the door of chastity which is bolted with the bolt of modesty.
+There is even a beauty in standing before and begging of those who are liberal in their gifts and understand their duty (to beggars).
 
 
 ## 

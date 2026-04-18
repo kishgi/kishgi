@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கரப்பிலா நெஞ்சின் கடனறிவார் முன்நின்று**  
-> **இரப்புமோ ரேஎர் உடைத்து.**" — *குறள் 1053*
+> "**எழுமை எழுபிறப்பும் உள்ளுவர் தங்கண்**  
+> **விழுமந் துடைத்தவர் நட்பு.**" — *குறள் 107*
 
 </div>
 
 **பொருள்:**  
-உள்ளதை ஒளிக்காத உள்ளமும், கடமையுணர்வும் கொண்டவரிடத்தில் தனது வறுமை காரணமாக இரந்து கேட்பதும் பெருமையுடையதே யாகும்.
+ஏழேழு தலைமுறைக்கு என்றும் ஏழேழு பிறவிக்கு என்றும் மிகைப்படுத்திச் சொல்வதுபோல, ஒருவருடைய துன்பத்தைப் போக்கியவரின் தூய்மையான நட்பை நினைத்துப் போற்றுவதற்குக் கால எல்லையே கிடையாது.
 
 **Meaning (English):**  
-There is even a beauty in standing before and begging of those who are liberal in their gifts and understand their duty (to beggars).
+(The wise) will remember throughout their seven-fold births the love of those who have wiped away their afliction.
 
 
 ## 

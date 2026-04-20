@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பகைபாவம் அச்சம் பழியென நான்கும்**  
-> **இகவாவாம் இல்லிறப்பான் கண்.**" — *குறள் 146*
+> "**கற்றார்முன் கற்ற செலச்சொல்லித் தாம்கற்ற**  
+> **மிக்காருள் மிக்க கொளல்.**" — *குறள் 724*
 
 </div>
 
 **பொருள்:**  
-பிறன் மனைவியிடம் முறைகேடாக நடக்க நினைப்பவனிடமிருந்து பகை, தீமை, அச்சம், பழி ஆகிய நான்கும் நீங்குவதில்லை.
+அறிஞர்களின் அவையில் நாம் கற்றவைகளை அவர்கள் ஏற்றுக் கொள்ளும் அளவுக்கு எடுத்துச் சொல்லி நம்மைவிட அதிகம் கற்றவரிடமிருந்து மேலும் பலவற்றை நாம் அறிந்து கொள்ள வேண்டும்.
 
 **Meaning (English):**  
-Hatred, sin, fear, disgrace; these four will never leave him who goes in to his neighbour’s wife.
+(Ministers) should agreeably set forth their acquirements before the learned and acquire more (know ledge) from their superiors (in learning).
 
 
 ## 

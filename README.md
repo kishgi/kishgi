@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கற்றார்முன் கற்ற செலச்சொல்லித் தாம்கற்ற**  
-> **மிக்காருள் மிக்க கொளல்.**" — *குறள் 724*
+> "**மருந்தோமற்று ஊன்ஓம்பும் வாழ்க்கை பெருந்தகைமை**  
+> **பீடழிய வந்த இடத்து.**" — *குறள் 968*
 
 </div>
 
 **பொருள்:**  
-அறிஞர்களின் அவையில் நாம் கற்றவைகளை அவர்கள் ஏற்றுக் கொள்ளும் அளவுக்கு எடுத்துச் சொல்லி நம்மைவிட அதிகம் கற்றவரிடமிருந்து மேலும் பலவற்றை நாம் அறிந்து கொள்ள வேண்டும்.
+சாகாமலே இருக்க மருந்து கிடையாது. அப்படி இருக்கும்போது உயிரைவிட நிலையான மானத்தைப் போற்றாமல், வாழ்க்கை மேம்பாட்டுக்காக ஒருவர், தமது பெருமையைக் குறைத்துக் கொள்வது இழிவான செயலாகும்.
 
 **Meaning (English):**  
-(Ministers) should agreeably set forth their acquirements before the learned and acquire more (know ledge) from their superiors (in learning).
+For the high-born to keep their body in life when their honour is gone will certainly not prove a remedy against death.
 
 
 ## 

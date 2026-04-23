@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கெடுவல்யான் என்பது அறிகதன் நெஞ்சம்**  
-> **நடுவொரீஇ அல்ல செயின்.**" — *குறள் 116*
+> "**இடுக்கண்கால் கொன்றிட வீழும் அடுத்தூன்றும்**  
+> **நல்லாள் இலாத குடி.**" — *குறள் 1030*
 
 </div>
 
 **பொருள்:**  
-நடுவுநிலைமை தவறிச் செயல்படலாம் என்று ஒரு நினைப்பு ஒருவனுக்கு வந்து விடுமானால் அவன் கெட்டொழியப் போகிறான் என்று அவனுக்கே தெரியவேண்டும்.
+வரும் துன்பத்தை எதிர் நின்று தாங்கக் கூடிய ஆற்றலுடையவர் இல்லாத குடியை அத்துன்பம், வென்று வீழ்த்திவிடும்.
 
 **Meaning (English):**  
-When the heart falters to think unfairly, be alerted that you are on course for ruination.
+If there are none to prop up and maintain a family (in distress), it will fall at the stroke of the axe of misfortune.
 
 
 ## 

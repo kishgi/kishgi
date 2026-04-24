@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இடுக்கண்கால் கொன்றிட வீழும் அடுத்தூன்றும்**  
-> **நல்லாள் இலாத குடி.**" — *குறள் 1030*
+> "**சிறைகாக்கும் காப்பெவன் செய்யும் மகளிர்**  
+> **நிறைகாக்கும் காப்பே தலை.**" — *குறள் 57*
 
 </div>
 
 **பொருள்:**  
-வரும் துன்பத்தை எதிர் நின்று தாங்கக் கூடிய ஆற்றலுடையவர் இல்லாத குடியை அத்துன்பம், வென்று வீழ்த்திவிடும்.
+தம்மைத் தாமே காத்துக்கொண்டு சிறந்த பண்புடன் வாழும் மகளிரை அடிமைகளாக நடத்த எண்ணுவது அறியாமையாகும்.
 
 **Meaning (English):**  
-If there are none to prop up and maintain a family (in distress), it will fall at the stroke of the axe of misfortune.
+What avails the guard of a prison ? The chi ef guard of a woman is her chastity.
 
 
 ## 

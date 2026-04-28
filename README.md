@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கான முயலெய்த அம்பினில் யானை**  
-> **பிழைத்தவேல் ஏந்தல் இனிது.**" — *குறள் 772*
+> "**நீங்கான் வெகுளி நிறையிலன் எஞ்ஞான்றும்**  
+> **யாங்கணும் யார்க்கும் எளிது.**" — *குறள் 864*
 
 </div>
 
 **பொருள்:**  
-வலிவு மிகுந்த யானைக்குக் குறிவைத்து, அந்தக் குறிதப்பினாலும்கூட அது, வலிவற்ற முயலுக்குக் குறிவைத்து அதனை வீழ்த்துவதைக் காட்டிலும் சிறப்புடையது.
+சினத்தையும் மனத்தையும் கட்டுப்படுத்த முடியாதவர்களை, எவர் வேண்டுமானாலும், எப்போது வேண்டுமானாலும், எங்கு வேண்டுமானாலும் எளிதில் தோற்கடித்து விடலாம்.
 
 **Meaning (English):**  
-It is more pleasant to hold the dart that has missed an elephant than that which has hit hare in the forest.
+He who neither refrains from anger nor keeps his secrets will at all times and in all places be easily conquered by all.
 
 
 ## 

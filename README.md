@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பற்றி விடாஅ இடும்பைகள் பற்றினைப்**  
-> **பற்றி விடாஅ தவர் க்கு.**" — *குறள் 347*
+> "**ஒட் டார்பின் சென்றொருவன் வாழ்தலின் அந்நிலையே**  
+> **கெட்டான் எனப்படுதல் நன்று.**" — *குறள் 967*
 
 </div>
 
 **பொருள்:**  
-பற்றுகளைப் பற்றிக்கொண்டு விடாதவர்களைத் துன்பங்களும் விடாமல் பற்றிக் கொள்கின்றன.
+தன்னை மதிக்காதவரின் பின்னால் சென்று உயிர் வாழ்வதைவிடச் செத்தொழிவது எவ்வளவோ மேல்.
 
 **Meaning (English):**  
-Sorrows will never let go their hold of those who give not up their hold of desire.
+It is better for a man to be said of him that he died in his usual state than that he eked out his life by following those who disgraced him.
 
 
 ## 

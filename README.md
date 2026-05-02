@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஒட் டார்பின் சென்றொருவன் வாழ்தலின் அந்நிலையே**  
-> **கெட்டான் எனப்படுதல் நன்று.**" — *குறள் 967*
+> "**குடிசெய்வார்க் கில்லை பருவம் மடிசெய்து**  
+> **மானங் கருதக் கெடும்.**" — *குறள் 1028*
 
 </div>
 
 **பொருள்:**  
-தன்னை மதிக்காதவரின் பின்னால் சென்று உயிர் வாழ்வதைவிடச் செத்தொழிவது எவ்வளவோ மேல்.
+தன்மீது நடத்தப்படும் இழிவான தாக்குதலைக் கண்டு கலங்கினாலோ, பணியாற்றக் காலம் வரட்டும் என்று சோர்வுடன் தயக்கம் காட்டினாலோ குடிமக்களின் நலன் சீர்குலைத்துவிடும்.
 
 **Meaning (English):**  
-It is better for a man to be said of him that he died in his usual state than that he eked out his life by following those who disgraced him.
+As a family sufers by (one’s) indolence and false dignity there is to be so season (good or bad) to those who strive to raise their family.
 
 
 ## 

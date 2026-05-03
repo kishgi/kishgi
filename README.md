@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**குடிசெய்வார்க் கில்லை பருவம் மடிசெய்து**  
-> **மானங் கருதக் கெடும்.**" — *குறள் 1028*
+> "**உள்ளிய தெல்லாம் உடனெய்தும் உள்ளத்தால்**  
+> **உள்ளான் வெகுளி எனின்.**" — *குறள் 309*
 
 </div>
 
 **பொருள்:**  
-தன்மீது நடத்தப்படும் இழிவான தாக்குதலைக் கண்டு கலங்கினாலோ, பணியாற்றக் காலம் வரட்டும் என்று சோர்வுடன் தயக்கம் காட்டினாலோ குடிமக்களின் நலன் சீர்குலைத்துவிடும்.
+உள்ளத்தால் சினங்கொள்ளாதவனாக இருந்தால் எண்ணியவற்றையெல்லாம் உடனடியாகப் பெற முடியும்.
 
 **Meaning (English):**  
-As a family sufers by (one’s) indolence and false dignity there is to be so season (good or bad) to those who strive to raise their family.
+If a man never indulges anger in his heart, he will at once obtain whatever he has thought of.
 
 
 ## 

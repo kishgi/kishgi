@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உள்ளிய தெல்லாம் உடனெய்தும் உள்ளத்தால்**  
-> **உள்ளான் வெகுளி எனின்.**" — *குறள் 309*
+> "**தன்னை உணர்த்தினும் காயும் பிறர்க்கும்நீர்**  
+> **இந்நீரர் ஆகுதிர் என்று.**" — *குறள் 1319*
 
 </div>
 
 **பொருள்:**  
-உள்ளத்தால் சினங்கொள்ளாதவனாக இருந்தால் எண்ணியவற்றையெல்லாம் உடனடியாகப் பெற முடியும்.
+நான் பணிந்து போய் அவள் ஊடலை நீக்கி மகிழ்வித்தாலும், உடனே அவள் ஓ! நீர் இப்படித்தான் மற்ற பெண்களிடமும் நடந்து கொள்வீரோ? என்று சினந்தெழுவாள்.
 
 **Meaning (English):**  
-If a man never indulges anger in his heart, he will at once obtain whatever he has thought of.
+Even when I try to remove her dislike, she is displeased and says, 'This is the way you behave towards (other women).'
 
 
 ## 

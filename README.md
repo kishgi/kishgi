@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தன்னை உணர்த்தினும் காயும் பிறர்க்கும்நீர்**  
-> **இந்நீரர் ஆகுதிர் என்று.**" — *குறள் 1319*
+> "**வேலொடு நின்றான் இடுவென் றதுபோலும்**  
+> **கோலொடு நின்றான் இரவு.**" — *குறள் 552*
 
 </div>
 
 **பொருள்:**  
-நான் பணிந்து போய் அவள் ஊடலை நீக்கி மகிழ்வித்தாலும், உடனே அவள் ஓ! நீர் இப்படித்தான் மற்ற பெண்களிடமும் நடந்து கொள்வீரோ? என்று சினந்தெழுவாள்.
+ஆட்சிக்கோல் ஏந்தியிருப்பவர்கள் தமது குடிமக்களிடம் அதிகாரத்தைக் காட்டிப் பொருளைப் பறிப்பது, வேல் ஏந்திய கொள்ளைக்காரனின் மிரட்டலைப் போன்றது.
 
 **Meaning (English):**  
-Even when I try to remove her dislike, she is displeased and says, 'This is the way you behave towards (other women).'
+The extortion and graft done wielding the sceptre is no different from robbery done pointing a spear.
 
 
 ## 

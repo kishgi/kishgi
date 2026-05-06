@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வேலொடு நின்றான் இடுவென் றதுபோலும்**  
-> **கோலொடு நின்றான் இரவு.**" — *குறள் 552*
+> "**களித்தறியேன் என்பது கைவிடுக நெஞ்சத்து**  
+> **ஒளித்ததூஉம் ஆங்கே மிகும்.**" — *குறள் 928*
 
 </div>
 
 **பொருள்:**  
-ஆட்சிக்கோல் ஏந்தியிருப்பவர்கள் தமது குடிமக்களிடம் அதிகாரத்தைக் காட்டிப் பொருளைப் பறிப்பது, வேல் ஏந்திய கொள்ளைக்காரனின் மிரட்டலைப் போன்றது.
+மது அருந்துவதே இல்லை என்று ஒருவன் பொய் சொல்ல முடியாது; காரணம், அவன் மது மயக்கத்தில் இருக்கும் போது அந்த உண்மையைச் சொல்லி விடுவான்.
 
 **Meaning (English):**  
-The extortion and graft done wielding the sceptre is no different from robbery done pointing a spear.
+Drop the pretense of never feeling merry while drinking; all that’s hidden in your heart will tumble out.
 
 
 ## 

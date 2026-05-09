@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஒற்றொற்றித் தந்த பொருளையும் மற்றுமோர்**  
-> **ஒற்றினால் ஒற்றிக் கொளல்.**" — *குறள் 588*
+> "**ண்பிலான் பெற்ற பெருஞ்செல்வம் நன்பால்**  
+> **கலந்தீமை யால்திரிந் தற்று.**" — *குறள் 1000*
 
 </div>
 
 **பொருள்:**  
-ஓர் உளவாளி, தனது திறமையினால் அறிந்து சொல்லும் செய்தியைக் கூட மற்றோர் உளவாளி வாயிலாகவும் அறிந்து வரச் செய்து, இரு செய்திகளையும் ஒப்பிட்டுப் பார்த்த பிறகே அது, உண்மையா அல்லவா என்ற முடிவுக்கு வரவேண்டும்.
+பாத்திரம் களிம்பு பிடித்திருந்தால், அதில் ஊற்றி வைக்கப்படும் பால் எப்படிக் கெட்டுவிடுமோ அதுபோலப் பண்பு இல்லாதவர்கள் பெற்ற செல்வமும் பயனற்றதாகி விடும்.
 
 **Meaning (English):**  
-Let not a king receive the information which a spy has discovered and made known to him, until he has examined it by another spy.
+The great wealth obtained by one who has no goodness will perish like pure milk spoilt by the impurity of the vessel.
 
 
 ## 

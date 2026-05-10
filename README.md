@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ண்பிலான் பெற்ற பெருஞ்செல்வம் நன்பால்**  
-> **கலந்தீமை யால்திரிந் தற்று.**" — *குறள் 1000*
+> "**ஒத்த தறவோன் உயிர்வாழ்வான் மற்றையான்**  
+> **செத்தாருள் வைக்கப் படும்.**" — *குறள் 214*
 
 </div>
 
 **பொருள்:**  
-பாத்திரம் களிம்பு பிடித்திருந்தால், அதில் ஊற்றி வைக்கப்படும் பால் எப்படிக் கெட்டுவிடுமோ அதுபோலப் பண்பு இல்லாதவர்கள் பெற்ற செல்வமும் பயனற்றதாகி விடும்.
+ஒப்புரவை அறிந்து பிறருக்கு உதவியாகத் தன் வாழ்வை அமைத்துக் கொள்பவனே உயிர்வாழ்பவன் எனக் கருதப்படுவான்; அதற்கு மாறானவன் இறந்தவனே ஆவான்.
 
 **Meaning (English):**  
-The great wealth obtained by one who has no goodness will perish like pure milk spoilt by the impurity of the vessel.
+He truly lives who knows (and discharges) the proper duties (of benevolence). He who knows them not will be reckoned among the dead.
 
 
 ## 

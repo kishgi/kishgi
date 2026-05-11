@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஒத்த தறவோன் உயிர்வாழ்வான் மற்றையான்**  
-> **செத்தாருள் வைக்கப் படும்.**" — *குறள் 214*
+> "**தன்குற்றம் நீக்கிப் பிறர்குற்றங் காண்கிற்பின்**  
+> **என்குற்ற மாகும் இறைக்கு?**" — *குறள் 436*
 
 </div>
 
 **பொருள்:**  
-ஒப்புரவை அறிந்து பிறருக்கு உதவியாகத் தன் வாழ்வை அமைத்துக் கொள்பவனே உயிர்வாழ்பவன் எனக் கருதப்படுவான்; அதற்கு மாறானவன் இறந்தவனே ஆவான்.
+முதலில் தனக்குள்ள குறையை நீக்கிக் கொண்டு அதன் பின்னர் பிறர் குறையைக் கண்டு சொல்லும் தலைவனுக்கு என்ன குறை நேரும்?.
 
 **Meaning (English):**  
-He truly lives who knows (and discharges) the proper duties (of benevolence). He who knows them not will be reckoned among the dead.
+What fault will remain in the king who has put away his own evils, and looks after the evils of others.
 
 
 ## 

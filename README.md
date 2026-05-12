@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தன்குற்றம் நீக்கிப் பிறர்குற்றங் காண்கிற்பின்**  
-> **என்குற்ற மாகும் இறைக்கு?**" — *குறள் 436*
+> "**தொகச் சொல்லித் தூவாத நீக்கி நகச்சொல்லி**  
+> **நன்றி பயப்பதாந் தூது.**" — *குறள் 685*
 
 </div>
 
 **பொருள்:**  
-முதலில் தனக்குள்ள குறையை நீக்கிக் கொண்டு அதன் பின்னர் பிறர் குறையைக் கண்டு சொல்லும் தலைவனுக்கு என்ன குறை நேரும்?.
+சினத்தைத் தூண்டாமல் மகிழத்தக்க அளவுக்குச் செய்திகளைத் தொகுத்தும், தேவையற்ற செய்திகளை ஒதுக்கியும், நல்ல பயனளிக்கும் விதமாகச் சொல்லுவதே சிறந்த தூதருக்கு அழகாகும்.
 
 **Meaning (English):**  
-What fault will remain in the king who has put away his own evils, and looks after the evils of others.
+He is an ambassador who (in the presence of foreign rulers) speaks briefly, avoids harshness, talks so as to make them smile, and thus brings good (to his own sovereign).
 
 
 ## 

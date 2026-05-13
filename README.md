@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தொகச் சொல்லித் தூவாத நீக்கி நகச்சொல்லி**  
-> **நன்றி பயப்பதாந் தூது.**" — *குறள் 685*
+> "**மணியில் திகழ்தரு நூல்போல் மடந்தை**  
+> **அணியில் திகழ்வதொன்று உண்டு.**" — *குறள் 1273*
 
 </div>
 
 **பொருள்:**  
-சினத்தைத் தூண்டாமல் மகிழத்தக்க அளவுக்குச் செய்திகளைத் தொகுத்தும், தேவையற்ற செய்திகளை ஒதுக்கியும், நல்ல பயனளிக்கும் விதமாகச் சொல்லுவதே சிறந்த தூதருக்கு அழகாகும்.
+மணியாரத்திற்குள் மறைந்திருக்கும் நூலைப்போல இந்த மடந்தையின் அழகுக்குள்ளே என்னை மயக்கும் குறிப்பு ஒன்று உளது.
 
 **Meaning (English):**  
-He is an ambassador who (in the presence of foreign rulers) speaks briefly, avoids harshness, talks so as to make them smile, and thus brings good (to his own sovereign).
+There is something that is implied in the beauty of this woman, like the thread that is visible in a garland of gems.
 
 
 ## 

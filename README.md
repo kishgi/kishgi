@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மணியில் திகழ்தரு நூல்போல் மடந்தை**  
-> **அணியில் திகழ்வதொன்று உண்டு.**" — *குறள் 1273*
+> "**அளவின்கண் நின்றொழுகல் ஆற்றார் களவின்கண்**  
+> **கன்றிய காத லவர்.**" — *குறள் 286*
 
 </div>
 
 **பொருள்:**  
-மணியாரத்திற்குள் மறைந்திருக்கும் நூலைப்போல இந்த மடந்தையின் அழகுக்குள்ளே என்னை மயக்கும் குறிப்பு ஒன்று உளது.
+ஓர் எல்லைக்குட்பட்டு வாழ்வைச் செம்மையாக அமைத்துக் கொள்ளாதவர்கள், களவு செய்து பிறர் பொருளைக் கொள்வதில் நாட்டமுடையவராவார்கள்.
 
 **Meaning (English):**  
-There is something that is implied in the beauty of this woman, like the thread that is visible in a garland of gems.
+They cannot walk steadfastly, according to rule, who eagerly desire to defraud others.
 
 
 ## 

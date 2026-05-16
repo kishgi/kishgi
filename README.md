@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறிவுடையார் ஆவ தறிவார் அறிவிலார்**  
-> **அஃதறி கல்லா தவர்.**" — *குறள் 427*
+> "**நயன் ஈன்று நன்றி பயக்கும் பயன்ஈன்று**  
+> **பண்பின் தலைப்பிரியாச் சொல்.**" — *குறள் 97*
 
 </div>
 
 **பொருள்:**  
-ஒரு விளைவுக்கு எதிர் விளைவு எப்படியிருக்குமென அறிவுடையவர்கள்தான் சிந்திப்பார்கள்; அறிவில்லாதவர்கள் சிந்திக்க மாட்டார்கள்.
+நன்மையான பயனைத் தரக்கூடிய நல்ல பண்பிலிருந்து விலகாத சொற்கள் அவற்றைக் கூறுவோருக்கும் இன்பத்தையும், நன்மையையும் உண்டாக்கக் கூடியவைகளாகும்.
 
 **Meaning (English):**  
-The wise are those who know beforehand what will happen; those who do not know this are the unwise.
+That speech which, while imparting benefits ceases not to please, will yield righteousness (for this world) and merit (for the next world).
 
 
 ## 

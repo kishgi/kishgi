@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நயன் ஈன்று நன்றி பயக்கும் பயன்ஈன்று**  
-> **பண்பின் தலைப்பிரியாச் சொல்.**" — *குறள் 97*
+> "**குன்றேறி யானைப் போர் கண்டற்றால் தன்கைத்தொன்று**  
+> **உண்டாகச் செய்வான் வினை.**" — *குறள் 758*
 
 </div>
 
 **பொருள்:**  
-நன்மையான பயனைத் தரக்கூடிய நல்ல பண்பிலிருந்து விலகாத சொற்கள் அவற்றைக் கூறுவோருக்கும் இன்பத்தையும், நன்மையையும் உண்டாக்கக் கூடியவைகளாகும்.
+தன் கைப்பொருளைக்கொண்டு ஒரு தொழில் செய்வது என்பது யானைகள் ஒன்றோடொன்று போரிடும் போது இடையில் சிக்கிக் கொள்ளாமல் அந்தப் போரை ஒரு குன்றின் மீது நின்று காண்பதைப் போன்று இலகுவானது.
 
 **Meaning (English):**  
-That speech which, while imparting benefits ceases not to please, will yield righteousness (for this world) and merit (for the next world).
+An undertaking of one who has wealth in one’s hands is like viewing an elephant-fight from a hill-top.
 
 
 ## 

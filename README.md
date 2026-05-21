@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பெற்றாற் பெறின்பெறுவர் பெண்டிர் பெருஞ்சிறப்புப்**  
-> **புத்தேளிர் வாழும் உலகு.**" — *குறள் 58*
+> "**எனைத்து நினைப்பினும் காயார் அனைத்தன்றோ**  
+> **காதலர் செய்யும் சிறப்பு.**" — *குறள் 1208*
 
 </div>
 
 **பொருள்:**  
-நற்பண்பு பெற்றவனைக் கணவனாகப் பெற்றால், பெண்டிர்க்கு இல்வாழ்க்கையெனும் புதிய உலகம் பெருஞ் சிறப்பாக அமையும்.
+எவ்வளவு அதிகமாக நினைத்தாலும், அதற்காகக் காதலர் என் மீது சினம் கொள்ளமாட்டார். அவர் எனக்குச் செய்யும் பெரும் உதவி அதுவல்லவா?.
 
 **Meaning (English):**  
-If women shew reverence to their husbands, they will obtain great excellence in the world where the gods flourish.
+He will not be angry however much I may think of him; is it not so much the delight my beloved affords me ?
 
 
 ## 

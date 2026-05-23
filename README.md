@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**செறுவார்க்குச் சேணிகவா இன்பம் அறிவிலா**  
-> **அஞ்சும் பகைவர்ப் பெறின்.**" — *குறள் 869*
+> "**ஒருபொழுதும் வாழ்வது அறியார் கருதுப**  
+> **கோடியும் அல்ல பல.**" — *குறள் 337*
 
 </div>
 
 **பொருள்:**  
-அஞ்சிடும் கோழைகளாகவும், அறிவில்லாக் கோழைகளாகவும் பகைவர்கள் இருப்பின் அவர்களை எதிர்ப்போரை விடுத்து வெற்றியெனும் இன்பம் விலகாமலே நிலைத்து நிற்கும்.
+ஒரு பொழுதுகூட வாழ்க்கையைப் பற்றி உண்மையைச் சிந்தித்து அறியாதவர்களே, ஆசைக்கோர் அளவின்றி மனக் கோட்டைகள் கட்டுவார்கள்.
 
 **Meaning (English):**  
-There will be no end of lofty delights to the victorious, if their foes are (both) ignorant and timid.
+Innumerable are the thoughts which occupy the mind of (the unwise), who know not that they shall live another moment.
 
 
 ## 

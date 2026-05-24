@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஒருபொழுதும் வாழ்வது அறியார் கருதுப**  
-> **கோடியும் அல்ல பல.**" — *குறள் 337*
+> "**அனிச்சப்பூக் கால்களையாள் பெய்தாள் நுகப்பிற்கு**  
+> **நல்ல படாஅ பறை.**" — *குறள் 1115*
 
 </div>
 
 **பொருள்:**  
-ஒரு பொழுதுகூட வாழ்க்கையைப் பற்றி உண்மையைச் சிந்தித்து அறியாதவர்களே, ஆசைக்கோர் அளவின்றி மனக் கோட்டைகள் கட்டுவார்கள்.
+அவளுக்காக நல்லபறை ஒலிக்கவில்லை; ஏனெனில் அவள் இடை ஒடிந்து வீழ்ந்துவிட்டாள்; காரணம், அவள் அனிச்ச மலர்களைக் காம்பு நீக்காமல் தலையில் வைத்துக்கொண்டதுதான்.
 
 **Meaning (English):**  
-Innumerable are the thoughts which occupy the mind of (the unwise), who know not that they shall live another moment.
+No merry drums will be beaten for the (tender) waist of her who has adorned herself with the anicham without having removed its stem.
 
 
 ## 

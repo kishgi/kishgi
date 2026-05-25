@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அனிச்சப்பூக் கால்களையாள் பெய்தாள் நுகப்பிற்கு**  
-> **நல்ல படாஅ பறை.**" — *குறள் 1115*
+> "**அறஞ்சொல்லும் நெஞ்சத்தான் அன்மை புறஞ்சொல்லும்**  
+> **புன்மையாற் காணப் படும்.**" — *குறள் 185*
 
 </div>
 
 **பொருள்:**  
-அவளுக்காக நல்லபறை ஒலிக்கவில்லை; ஏனெனில் அவள் இடை ஒடிந்து வீழ்ந்துவிட்டாள்; காரணம், அவள் அனிச்ச மலர்களைக் காம்பு நீக்காமல் தலையில் வைத்துக்கொண்டதுதான்.
+ஒருவன் பிறரைப்பற்றிப் புறம் பேசுகிற சிறுமைத்தன்மையைக்கொண்டே அவன் அறவழி நிற்பவன் அல்லன் என்பதை எளிதில் தெரிந்து கொள்ளலாம்.
 
 **Meaning (English):**  
-No merry drums will be beaten for the (tender) waist of her who has adorned herself with the anicham without having removed its stem.
+The emptiness of that man’s mind who (merely) praises virtue will be seen from the meanness of reviling another behind his back.
 
 
 ## 

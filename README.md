@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறஞ்சொல்லும் நெஞ்சத்தான் அன்மை புறஞ்சொல்லும்**  
-> **புன்மையாற் காணப் படும்.**" — *குறள் 185*
+> "**விடாஅது சென்றாரைக் கண்ணினால் காணப்**  
+> **படாஅதி வாழி மதி.**" — *குறள் 1210*
 
 </div>
 
 **பொருள்:**  
-ஒருவன் பிறரைப்பற்றிப் புறம் பேசுகிற சிறுமைத்தன்மையைக்கொண்டே அவன் அறவழி நிற்பவன் அல்லன் என்பதை எளிதில் தெரிந்து கொள்ளலாம்.
+நிலவே! நீ வாழ்க; இணைபிரியாமலிருந்து, பிரிந்து சென்றுள்ள காதலரை நான் என் கண்களால் தேடிக் கண்டுபிடித்திடத் துணையாக நீ மறையாமல் இருப்பாயாக.
 
 **Meaning (English):**  
-The emptiness of that man’s mind who (merely) praises virtue will be seen from the meanness of reviling another behind his back.
+May you live, O Moon! Do not set, that I mine see him who has departed without quitting my soul.
 
 
 ## 

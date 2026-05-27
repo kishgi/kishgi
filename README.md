@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**விடாஅது சென்றாரைக் கண்ணினால் காணப்**  
-> **படாஅதி வாழி மதி.**" — *குறள் 1210*
+> "**பண்என்னாம் பாடற்கு இயைபின்றேல் கண்என்னாம்**  
+> **கண்ணோட்டம் இல்லாத கண்.**" — *குறள் 573*
 
 </div>
 
 **பொருள்:**  
-நிலவே! நீ வாழ்க; இணைபிரியாமலிருந்து, பிரிந்து சென்றுள்ள காதலரை நான் என் கண்களால் தேடிக் கண்டுபிடித்திடத் துணையாக நீ மறையாமல் இருப்பாயாக.
+இரக்க உணர்வு, அன்பு எனும் கண்ணோட்டத்துடன் பொருந்தி வராத கண்ணும், பாடலுடன் பொருந்தி வராத இசையும் பயன் தராதவையாகும்.
 
 **Meaning (English):**  
-May you live, O Moon! Do not set, that I mine see him who has departed without quitting my soul.
+Of what avail is a song if it be inconsistent with harmony ? what is the use of eyes which possess no kindliness.
 
 
 ## 

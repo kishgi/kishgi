@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பண்என்னாம் பாடற்கு இயைபின்றேல் கண்என்னாம்**  
-> **கண்ணோட்டம் இல்லாத கண்.**" — *குறள் 573*
+> "**இன்நம்யுள் இன்மை விருந்தொரால் வன்மையுள்**  
+> **வன்மை மடவார்ப் பொறை.**" — *குறள் 153*
 
 </div>
 
 **பொருள்:**  
-இரக்க உணர்வு, அன்பு எனும் கண்ணோட்டத்துடன் பொருந்தி வராத கண்ணும், பாடலுடன் பொருந்தி வராத இசையும் பயன் தராதவையாகும்.
+வறுமையிலும் கொடிய வறுமை, வந்த விருந்தினரை வரவேற்க முடியாதது. அதைப் போல வலிமையிலேயே பெரிய வலிமை அறிவிலிகளின் செயலைப் பொறுத்துக் கொள்வது.
 
 **Meaning (English):**  
-Of what avail is a song if it be inconsistent with harmony ? what is the use of eyes which possess no kindliness.
+To neglect hospitality is poverty of poverty. To bear with the ignorant is might of might.
 
 
 ## 

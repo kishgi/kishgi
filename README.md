@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அகழ்வாரைத் தாங்கும் நிலம்போலத் தம்மை**  
-> **இகழ்வார்ப் பொறுத்தல் தலை.**" — *குறள் 151*
+> "**இல்லை தவறவர்க்கு ஆயினும் ஊடுதல்**  
+> **வல்லது அவர் அளிக்கு மாறு.**" — *குறள் 1321*
 
 </div>
 
 **பொருள்:**  
-தன்மீது குழி பறிப்போரையே தாங்குகின்ற பூமியைப் போல் தம்மை இகழ்ந்து பேசுகிறவர்களின் செயலையும் பொறுத்துக் கொள்வதே தலைசிறந்த பண்பாகும்.
+எந்த தவறும் இல்லாத நிலையிலும்கூட காதலர்க்கிடையே தோன்றும் ஊடல், அவர்களின் அன்பை மிகுதியாக வளர்க்கக் கூடியது.
 
 **Meaning (English):**  
-To bear with those who revile us, just as the earth bears up those who dig it, is the first of virtues.
+Although my husband is free from defects, the way in which he embraces me is such as to make me feign dislike.
 
 
 ## 

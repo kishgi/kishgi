@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இல்லை தவறவர்க்கு ஆயினும் ஊடுதல்**  
-> **வல்லது அவர் அளிக்கு மாறு.**" — *குறள் 1321*
+> "**தோன்றின் புகழொடு தோன்றுக அஃதிலார்**  
+> **தோன்றலின் தோன்றாமை நன்று.**" — *குறள் 236*
 
 </div>
 
 **பொருள்:**  
-எந்த தவறும் இல்லாத நிலையிலும்கூட காதலர்க்கிடையே தோன்றும் ஊடல், அவர்களின் அன்பை மிகுதியாக வளர்க்கக் கூடியது.
+எந்தத் துறையில் ஈடுபட்டாலும் அதில் புகழுடன் விளங்கவேண்டும்; இயலாதவர்கள் அந்தத் துறையில் ஈ.டுபடாமல் இருப்பதே நல்லது.
 
 **Meaning (English):**  
-Although my husband is free from defects, the way in which he embraces me is such as to make me feign dislike.
+If you are born (in this world), be born with qualities conductive to fame. From those who are destitute of them it will be better not to be born.
 
 
 ## 

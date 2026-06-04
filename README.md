@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தோன்றின் புகழொடு தோன்றுக அஃதிலார்**  
-> **தோன்றலின் தோன்றாமை நன்று.**" — *குறள் 236*
+> "**மறவற்க மாசற்றார் கேண்மை துறவற்க**  
+> **துன்பத்துள் துப்பாயார் நட்பு.**" — *குறள் 106*
 
 </div>
 
 **பொருள்:**  
-எந்தத் துறையில் ஈடுபட்டாலும் அதில் புகழுடன் விளங்கவேண்டும்; இயலாதவர்கள் அந்தத் துறையில் ஈ.டுபடாமல் இருப்பதே நல்லது.
+மாசற்றவர்களின் உறவை மறக்கவும் கூடாது; துன்பத்தில் துணை நின்றவர் நட்பைத் துறக்கவும் கூடாது.
 
 **Meaning (English):**  
-If you are born (in this world), be born with qualities conductive to fame. From those who are destitute of them it will be better not to be born.
+Forsake not the friendship of those who have been your staff in adversity. Forget not be benevolence of the blameless.
 
 
 ## 

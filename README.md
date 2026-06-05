@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மறவற்க மாசற்றார் கேண்மை துறவற்க**  
-> **துன்பத்துள் துப்பாயார் நட்பு.**" — *குறள் 106*
+> "**நெடுங்கடலும் தன்நீர்மை குன்றும் தடிந்தெழிலி**  
+> **தான்நல்கா தாகி விடின்.**" — *குறள் 17*
 
 </div>
 
 **பொருள்:**  
-மாசற்றவர்களின் உறவை மறக்கவும் கூடாது; துன்பத்தில் துணை நின்றவர் நட்பைத் துறக்கவும் கூடாது.
+ஆவியான கடல்நீர் மேகமாகி அந்தக் கடலில் மழையாகப் பெய்தால்தான் கடல்கூட வற்றாமல் இருக்கும். மனித சமுதாயத்திலிருந்து புகழுடன் உயர்ந்தவர்களும் அந்தச் சமுதாயத்திற்கே பயன்பட்டால்தான் அந்தச் சமுதாயம் வாழும்.
 
 **Meaning (English):**  
-Forsake not the friendship of those who have been your staff in adversity. Forget not be benevolence of the blameless.
+Even the wealth of the wide sea will be diminished, if the cloud that has drawn (its waters) up gives them not back again (in rain).
 
 
 ## 

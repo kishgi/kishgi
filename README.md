@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**காமக் கடும்புனல் உய்க்கும் நாணொடு**  
-> **நல்லாண்மை என்னும் புணை.**" — *குறள் 1134*
+> "**நட்டார்போல் நல்லவை சொல்லினும் ஒட்டார்சொல்**  
+> **ஒல்லை உணரப் படும்.**" — *குறள் 826*
 
 </div>
 
 **பொருள்:**  
-காதல் பெருவெள்ளமானது நாணம், நல்ல ஆண்மை எனப்படும் தோணிகளை அடித்துக்கொண்டு போய்விடும் வலிமை வாய்ந்தது.
+பகைவர், நண்பரைப்போல இனிமையாகப் பேசினாலும் அந்தச் சொற்களில் கிடக்கும் சிறுமைக் குணம் வெளிப்பட்டே தீரும்.
 
 **Meaning (English):**  
-The raft of modesty and manliness, is, alas, carried-of by the strong current of lust.
+Though (one’s) foes may utter good things as though they were friends, once will at once understand (their evil, import).
 
 
 ## 

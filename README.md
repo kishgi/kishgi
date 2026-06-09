@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நட்டார்போல் நல்லவை சொல்லினும் ஒட்டார்சொல்**  
-> **ஒல்லை உணரப் படும்.**" — *குறள் 826*
+> "**நகையும் உவகையும் கொல்லும் சினத்தின்**  
+> **பகையும் உளவோ பிற.**" — *குறள் 304*
 
 </div>
 
 **பொருள்:**  
-பகைவர், நண்பரைப்போல இனிமையாகப் பேசினாலும் அந்தச் சொற்களில் கிடக்கும் சிறுமைக் குணம் வெளிப்பட்டே தீரும்.
+சினம் கொள்கிறவர்களுக்கு முகமலர்ச்சி மாத்திரமின்றி மனமகிழ்ச்சியும் மறைந்து போய் விடும்.
 
 **Meaning (English):**  
-Though (one’s) foes may utter good things as though they were friends, once will at once understand (their evil, import).
+Is there a greater enemy than anger, which kills both laughter and joy ?
 
 
 ## 

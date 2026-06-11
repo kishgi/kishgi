@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மறப்பின் எவனாவன் மற்கொல் மறப்பறியேன்**  
-> **உள்ளினும் உள்ளம் சுடும்.**" — *குறள் 1207*
+> "**துறந்தாரின் தூய்மை உடையர் இறந்தார்வாய்**  
+> **இன்னாச்சொல் நோற்கிற் பவர்.**" — *குறள் 159*
 
 </div>
 
 **பொருள்:**  
-மறதி என்பதே இல்லாமல் நினைத்துக் கொண்டிருக்கும் பொழுதே பிரிவுத்துன்பம் சுட்டுப் பொசுக்குகிறதே! பிணைக்காமல் மறந்துவிட்டால் என்ன ஆகுமோ?.
+எல்லை கடந்து நடந்து கொள்பவர்களின் கொடிய சொற்களைப் பொறுத்துக் கொள்பவர்கள் தூய்மையான துறவிகளைப் போன்றவர்கள்.
 
 **Meaning (English):**  
-I have never forgotten (the pleasure); even to think of it burns my soul; could I live, if I should ever forget it ?
+Those who bear with the uncourteous speech of the insolent are as pure as the ascetics.
 
 
 ## 

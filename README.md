@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**துறந்தாரின் தூய்மை உடையர் இறந்தார்வாய்**  
-> **இன்னாச்சொல் நோற்கிற் பவர்.**" — *குறள் 159*
+> "**அரியஎன்று ஆகாத இல்லைபொச் சாவாக்**  
+> **கருவியால் போற்றிச் செயின்.**" — *குறள் 537*
 
 </div>
 
 **பொருள்:**  
-எல்லை கடந்து நடந்து கொள்பவர்களின் கொடிய சொற்களைப் பொறுத்துக் கொள்பவர்கள் தூய்மையான துறவிகளைப் போன்றவர்கள்.
+மறதியில்லாமலும், அக்கறையுடனும் செயல்பட்டால், முடியாதது என்று எதுவுமே இல்லை.
 
 **Meaning (English):**  
-Those who bear with the uncourteous speech of the insolent are as pure as the ascetics.
+There is nothing too dificult to be accomplished, if a man set about it carefully, with unflinching endeavour.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அரியஎன்று ஆகாத இல்லைபொச் சாவாக்**  
-> **கருவியால் போற்றிச் செயின்.**" — *குறள் 537*
+> "**நனவினால் நம்நீத்தார் என்பர் கனவினால்**  
+> **காணார்கொல் இவ்வூ ரவர்.**" — *குறள் 1220*
 
 </div>
 
 **பொருள்:**  
-மறதியில்லாமலும், அக்கறையுடனும் செயல்பட்டால், முடியாதது என்று எதுவுமே இல்லை.
+என் காதலர் என்னைப் பிரிந்திருப்பதாக அவரைக் குற்றம் சாட்டுகிறார்களே, இந்த ஊரார், பிரிந்து சென்ற தமது காதலனைக் கனவில் காண்பது கிடையாதோ?.
 
 **Meaning (English):**  
-There is nothing too dificult to be accomplished, if a man set about it carefully, with unflinching endeavour.
+The women of this place say he has forsaken me in my wakefulness. I think they have not seen him visit me in my dreams.
 
 
 ## 

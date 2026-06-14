@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நனவினால் நம்நீத்தார் என்பர் கனவினால்**  
-> **காணார்கொல் இவ்வூ ரவர்.**" — *குறள் 1220*
+> "**அறிவுரு வாராய்ந்த கல்விஇம் மூன்றன்**  
+> **செறிவுடையான் செல்க வினைக்கு.**" — *குறள் 684*
 
 </div>
 
 **பொருள்:**  
-என் காதலர் என்னைப் பிரிந்திருப்பதாக அவரைக் குற்றம் சாட்டுகிறார்களே, இந்த ஊரார், பிரிந்து சென்ற தமது காதலனைக் கனவில் காண்பது கிடையாதோ?.
+தூது உரைக்கும் செயலை மேற்கொள்பவர் அறிவு, தோற்றப் பொலிவு, ஆய்ந்து தெளிந்த கல்வி ஆகிய மூன்றும் நிறைந்தவராக இருத்தல் வேண்டும்.
 
 **Meaning (English):**  
-The women of this place say he has forsaken me in my wakefulness. I think they have not seen him visit me in my dreams.
+He may go on a mission (to foreign rulers) who has combined in him all these three. viz., (natural) sense, an attractive bearing and well-tried learning.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறிவுரு வாராய்ந்த கல்விஇம் மூன்றன்**  
-> **செறிவுடையான் செல்க வினைக்கு.**" — *குறள் 684*
+> "**முரண்சேர்ந்த மொய்ம்பி னவர்க்கும் அரண்சேர்ந்தாம்**  
+> **ஆக்கம் பலவுந் தரும்.**" — *குறள் 492*
 
 </div>
 
 **பொருள்:**  
-தூது உரைக்கும் செயலை மேற்கொள்பவர் அறிவு, தோற்றப் பொலிவு, ஆய்ந்து தெளிந்த கல்வி ஆகிய மூன்றும் நிறைந்தவராக இருத்தல் வேண்டும்.
+வரும்பகையை எதிர்க்கும் வலிமை இருப்பினும், அத்துடன் அரணைச் சார்ந்து போரிடும் வாய்ப்பும் இணையுமானால் பெரும்பயன் கிட்டும்.
 
 **Meaning (English):**  
-He may go on a mission (to foreign rulers) who has combined in him all these three. viz., (natural) sense, an attractive bearing and well-tried learning.
+Even to those who are men of power and expedients, an attack in connection with a fortification will yield many advantages.
 
 
 ## 

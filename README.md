@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**முரண்சேர்ந்த மொய்ம்பி னவர்க்கும் அரண்சேர்ந்தாம்**  
-> **ஆக்கம் பலவுந் தரும்.**" — *குறள் 492*
+> "**வியவற்க எஞ்ஞான்றும் தன்னை நயவற்க**  
+> **நன்றி பயவா வினை.**" — *குறள் 439*
 
 </div>
 
 **பொருள்:**  
-வரும்பகையை எதிர்க்கும் வலிமை இருப்பினும், அத்துடன் அரணைச் சார்ந்து போரிடும் வாய்ப்பும் இணையுமானால் பெரும்பயன் கிட்டும்.
+எந்தவொரு காலகட்டத்திலும் தன்னைத்தானே உயர்வாக எண்ணிடும் தற்பெருமைகொண்டு நன்மை தராத செயல்களில் ஈ.டுபடக் கூடாது.
 
 **Meaning (English):**  
-Even to those who are men of power and expedients, an attack in connection with a fortification will yield many advantages.
+Let no (one) praise himself, at any time; let him not desire to do useless things.
 
 
 ## 

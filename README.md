@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வியவற்க எஞ்ஞான்றும் தன்னை நயவற்க**  
-> **நன்றி பயவா வினை.**" — *குறள் 439*
+> "**தவஞ் செய்வார் தங்கருமஞ் செய்வார்மற் றல்லார்**  
+> **அவஞ்செய்வார் ஆசையுட் பட்டு.**" — *குறள் 266*
 
 </div>
 
 **பொருள்:**  
-எந்தவொரு காலகட்டத்திலும் தன்னைத்தானே உயர்வாக எண்ணிடும் தற்பெருமைகொண்டு நன்மை தராத செயல்களில் ஈ.டுபடக் கூடாது.
+அடக்கமும், அன்பு நெறியும், துன்பங்களைத் தாங்கும் பொறுமையும் வாய்ந்த தவம் மேற்கொண்டவர்கள் மட்டுமே தமது கடமையைச் செய்பவர்கள்; அதற்கு மாறானவர்கள், ஆசையால் அலைக்கழிக்கப்பட்டு வீணான செயல்களில் ஈ.டுபடுபவர்கள்.
 
 **Meaning (English):**  
-Let no (one) praise himself, at any time; let him not desire to do useless things.
+Those discharge their duty who perform austerities; all others accomplish their own destruction, through the entanglement of the desire (of riches and sensual pleasure).
 
 
 ## 

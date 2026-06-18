@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தவஞ் செய்வார் தங்கருமஞ் செய்வார்மற் றல்லார்**  
-> **அவஞ்செய்வார் ஆசையுட் பட்டு.**" — *குறள் 266*
+> "**வினைகலந்து வென்றீக வேந்தன் மனைகலந்து**  
+> **மாலை அயர்கம் விருந்து.**" — *குறள் 1268*
 
 </div>
 
 **பொருள்:**  
-அடக்கமும், அன்பு நெறியும், துன்பங்களைத் தாங்கும் பொறுமையும் வாய்ந்த தவம் மேற்கொண்டவர்கள் மட்டுமே தமது கடமையைச் செய்பவர்கள்; அதற்கு மாறானவர்கள், ஆசையால் அலைக்கழிக்கப்பட்டு வீணான செயல்களில் ஈ.டுபடுபவர்கள்.
+தலைவன், தான் மேற்கொண்டுள்ள செயலில் வெற்றி பெறுவானாக; அவன் வென்றால் என் மனைவியுடன் எனக்கு மாலைப்பொழுதில் இன்ப விருந்துதான்.
 
 **Meaning (English):**  
-Those discharge their duty who perform austerities; all others accomplish their own destruction, through the entanglement of the desire (of riches and sensual pleasure).
+Let the king fight and gain (victories); (but) let me be united to my wife and feast the evening.
 
 
 ## 

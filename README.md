@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வினைகலந்து வென்றீக வேந்தன் மனைகலந்து**  
-> **மாலை அயர்கம் விருந்து.**" — *குறள் 1268*
+> "**இறந்தார் இறந்தார் அனையர் சினத்தைத்**  
+> **துறந்தார் துறந்தார் துணை.**" — *குறள் 310*
 
 </div>
 
 **பொருள்:**  
-தலைவன், தான் மேற்கொண்டுள்ள செயலில் வெற்றி பெறுவானாக; அவன் வென்றால் என் மனைவியுடன் எனக்கு மாலைப்பொழுதில் இன்ப விருந்துதான்.
+எல்லையற்ற சினம் கொள்வார் இறந்தவர்க்கு ஒப்பாவார். சினத்தை அறவே துறந்தவர் துறவிக்கு ஒப்பாவார்.
 
 **Meaning (English):**  
-Let the king fight and gain (victories); (but) let me be united to my wife and feast the evening.
+Those, who give way to excessive anger, are no better than dead men; but those, who are freed from it, are equal to those who are freed (from death).
 
 
 ## 

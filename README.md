@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இறந்தார் இறந்தார் அனையர் சினத்தைத்**  
-> **துறந்தார் துறந்தார் துணை.**" — *குறள் 310*
+> "**எண்ணியார் எண்ணம் இழப்பர் இடனறிந்து**  
+> **துன்னியார் துன்னிச் செயின்.**" — *குறள் 494*
 
 </div>
 
 **பொருள்:**  
-எல்லையற்ற சினம் கொள்வார் இறந்தவர்க்கு ஒப்பாவார். சினத்தை அறவே துறந்தவர் துறவிக்கு ஒப்பாவார்.
+ஏற்ற இடமறிந்து தொடர்ந்து தாக்கினால் பகைவர்கள், வெற்றி என்பதை நினைத்துக்கூடப் பார்க்க மாட்டார்கள்.
 
 **Meaning (English):**  
-Those, who give way to excessive anger, are no better than dead men; but those, who are freed from it, are equal to those who are freed (from death).
+If they who draw near (to fight) choose a suitable place to approach (their enemy), the latter, will have to relinquish the thought which they once entertained, of conquering them.
 
 
 ## 

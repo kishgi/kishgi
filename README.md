@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**எண்ணியார் எண்ணம் இழப்பர் இடனறிந்து**  
-> **துன்னியார் துன்னிச் செயின்.**" — *குறள் 494*
+> "**விழையார் விழையப் படுப பழையார்கண்**  
+> **பண்பின் தலைப்பிரியா தார்.**" — *குறள் 810*
 
 </div>
 
 **பொருள்:**  
-ஏற்ற இடமறிந்து தொடர்ந்து தாக்கினால் பகைவர்கள், வெற்றி என்பதை நினைத்துக்கூடப் பார்க்க மாட்டார்கள்.
+பழமையான நண்பர்கள் தவறு செய்த போதிலும், அவர்களிடம் தமக்குள்ள அன்பை நீக்கிக் கொள்ளாதவர்களைப் பகைவரும் விரும்பிப் பாராட்டுவார்கள்.
 
 **Meaning (English):**  
-If they who draw near (to fight) choose a suitable place to approach (their enemy), the latter, will have to relinquish the thought which they once entertained, of conquering them.
+Even enemies will love those who have never changed in their affection to their long-standing friends.
 
 
 ## 

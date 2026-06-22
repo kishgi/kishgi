@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**விழையார் விழையப் படுப பழையார்கண்**  
-> **பண்பின் தலைப்பிரியா தார்.**" — *குறள் 810*
+> "**நகல்வல்லர் அல்லார்க்கு மாயிரு ஞாலம்**  
+> **பகலும்பாற் பட்டன்று இருள்.**" — *குறள் 999*
 
 </div>
 
 **பொருள்:**  
-பழமையான நண்பர்கள் தவறு செய்த போதிலும், அவர்களிடம் தமக்குள்ள அன்பை நீக்கிக் கொள்ளாதவர்களைப் பகைவரும் விரும்பிப் பாராட்டுவார்கள்.
+நண்பர்களுடன் பழகி மகிழத் தெரியாதவர்களுக்கு உலகம் என்பது பகலில் கூட இருட்டாகத்தான் இருக்கும்.
 
 **Meaning (English):**  
-Even enemies will love those who have never changed in their affection to their long-standing friends.
+To those who cannot rejoice, the wide world is buried darkness even in (broad) day light.
 
 
 ## 

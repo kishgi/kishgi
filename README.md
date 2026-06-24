@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இனம்போன்று இனமல்லார் கேண்மை மகளிர்**  
-> **மனம்போல வேறு படும்.**" — *குறள் 822*
+> "**எப்பொருள் எத்தன்மைத் தாயினும் அப்பொருள்**  
+> **மெய்ப்பொருள் காண்பது அறிவு.**" — *குறள் 355*
 
 </div>
 
 **பொருள்:**  
-உற்றாராக இல்லாமல் உற்றார்போல நடிப்பவர்களின் நட்பு, மகளிருக்குரிய நற்பண்பு இல்லாமல் அப்பண்பு உள்ளவர் போல நடிக்கும் விலை மகளிரின் மனம்போல உள்ளொன்றும் புறமொன்றுமாக இருக்கும்.
+வெளித்தோற்றத்தைப் பார்த்து ஏமாந்து விடாமல், அதுபற்றிய உண்மையை உணர்வதுதான் அறிவுடைமையாகும்.
 
 **Meaning (English):**  
-The friendship of those who seem to be friends while they are not, will change like the love of women.
+(True) knowledge is the perception concerning every thing of whatever kind, that that thing is the true thing.
 
 
 ## 

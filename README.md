@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**எப்பொருள் எத்தன்மைத் தாயினும் அப்பொருள்**  
-> **மெய்ப்பொருள் காண்பது அறிவு.**" — *குறள் 355*
+> "**கரத்தலும் ஆற்றேன்இந் நோயைநோய் செய்தார்க்கு**  
+> **உரைத்தலும் நாணுத் தரும்.**" — *குறள் 1162*
 
 </div>
 
 **பொருள்:**  
-வெளித்தோற்றத்தைப் பார்த்து ஏமாந்து விடாமல், அதுபற்றிய உண்மையை உணர்வதுதான் அறிவுடைமையாகும்.
+காதல் நோயை என்னால் மறைக்கவும் முடியவில்லை; இதற்குக் காரணமான காதலரிடம் நாணத்தால் உரைக்கவும் முடியவில்லை.
 
 **Meaning (English):**  
-(True) knowledge is the perception concerning every thing of whatever kind, that that thing is the true thing.
+I cannot conceal this pain, nor can I relate it without shame to him who has caused it.
 
 
 ## 

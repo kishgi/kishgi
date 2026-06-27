@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நுணங்கிய கேள்விய ரல்லார் வணங்கிய**  
-> **வாயின ராதல் அரிது.**" — *குறள் 419*
+> "**விடாஅது சென்றாரைக் கண்ணினால் காணப்**  
+> **படாஅதி வாழி மதி.**" — *குறள் 1210*
 
 </div>
 
 **பொருள்:**  
-தெளிவான கேள்வியறிவு இல்லாதவர்கள், அடக்கமாகப் பேசும் அமைதியான பண்புடையவர்களாக இருக்க இயலாது.
+நிலவே! நீ வாழ்க; இணைபிரியாமலிருந்து, பிரிந்து சென்றுள்ள காதலரை நான் என் கண்களால் தேடிக் கண்டுபிடித்திடத் துணையாக நீ மறையாமல் இருப்பாயாக.
 
 **Meaning (English):**  
-It is a rare thing to find modesty, a reverend mouth- with those who have not received choice instruction.
+May you live, O Moon! Do not set, that I mine see him who has departed without quitting my soul.
 
 
 ## 

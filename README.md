@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மணிநீரும் மண்ணும் மலையும் அணிநிழற்**  
-> **காடும் உடைய தரண்.**" — *குறள் 742*
+> "**தொட்டனைத் தூறும் மணற்கேணி மாந்தர்க்குக்**  
+> **கற்றனைத் தூறும் அறிவு.**" — *குறள் 396*
 
 </div>
 
 **பொருள்:**  
-ஆழமும் அகலமும் கொண்ட அகழ், பரந்த நிலம், உயர்ந்து நிற்கும் மலைத்தொடர், அடர்ந்திருக்கும் காடு ஆகியவற்றை உடையதே அரணாகும்.
+தோண்டத் தோண்ட ஊற்றுநீர் கிடைப்பது போலத் தொடர்ந்து படிக்கப் படிக்க அறிவு பெருகிக் கொண்டே இருக்கும்.
 
 **Meaning (English):**  
-A fort is that which has everlasting water, plains, mountains and cool shady forests.
+Water will flow from a well in the sand in proportion to the depth to which it is dug, and knowledge will flow from a man in proportion to his learning.
 
 
 ## 

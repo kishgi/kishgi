@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தொட்டனைத் தூறும் மணற்கேணி மாந்தர்க்குக்**  
-> **கற்றனைத் தூறும் அறிவு.**" — *குறள் 396*
+> "**நகையுள்ளும் இன்னா திகழ்ச்சி பகையுள்ளும்**  
+> **பண்புள பாடறிவார் மாட்டு.**" — *குறள் 995*
 
 </div>
 
 **பொருள்:**  
-தோண்டத் தோண்ட ஊற்றுநீர் கிடைப்பது போலத் தொடர்ந்து படிக்கப் படிக்க அறிவு பெருகிக் கொண்டே இருக்கும்.
+விளையாட்டாகக்கூட ஒருவரை இகழ்ந்து பேசுவதால் கேடு உண்டாகும். அறிவு முதிர்ந்தவர்கள், பகைவரிடமும் பண்புகெடாமல் நடந்து கொள்வார்கள்.
 
 **Meaning (English):**  
-Water will flow from a well in the sand in proportion to the depth to which it is dug, and knowledge will flow from a man in proportion to his learning.
+Reproach is painful to one even in sport; those (therefore) who know the nature of others exhibit (pleasing) qualities even when they are hated.
 
 
 ## 

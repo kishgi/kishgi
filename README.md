@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நகையுள்ளும் இன்னா திகழ்ச்சி பகையுள்ளும்**  
-> **பண்புள பாடறிவார் மாட்டு.**" — *குறள் 995*
+> "**வேண்டற்க வென்றிடினும் சூதினை வென்றதூஉம்**  
+> **தூண்டிற்பொன் மீன்விழுங்கி அற்று.**" — *குறள் 931*
 
 </div>
 
 **பொருள்:**  
-விளையாட்டாகக்கூட ஒருவரை இகழ்ந்து பேசுவதால் கேடு உண்டாகும். அறிவு முதிர்ந்தவர்கள், பகைவரிடமும் பண்புகெடாமல் நடந்து கொள்வார்கள்.
+வெற்றியே பெறுவதாயினும் சூதாடும் இடத்தை நாடக்கூடாது. அந்த வெற்றி, தூண்டிலின் இரும்பு முள்ளில் கோத்த இரையை மட்டும் விழுங்குவதாக நினைத்து மீன்கள் இரும்பு முள்ளையே கவ்விக் கொண்டது போலாகிவிடும்.
 
 **Meaning (English):**  
-Reproach is painful to one even in sport; those (therefore) who know the nature of others exhibit (pleasing) qualities even when they are hated.
+Though able to win, let not one desire gambling; (for) even what is won is like a fish swallowing the iron in fish-hook.
 
 
 ## 

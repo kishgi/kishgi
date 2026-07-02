@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வேண்டற்க வென்றிடினும் சூதினை வென்றதூஉம்**  
-> **தூண்டிற்பொன் மீன்விழுங்கி அற்று.**" — *குறள் 931*
+> "**தெரிந்த இனத்தொடு தேர்ந்தெண்ணிச் செய்வார்க்கு**  
+> **அரும்பொருள் யாதொன்றும் இல்**" — *குறள் 462*
 
 </div>
 
 **பொருள்:**  
-வெற்றியே பெறுவதாயினும் சூதாடும் இடத்தை நாடக்கூடாது. அந்த வெற்றி, தூண்டிலின் இரும்பு முள்ளில் கோத்த இரையை மட்டும் விழுங்குவதாக நினைத்து மீன்கள் இரும்பு முள்ளையே கவ்விக் கொண்டது போலாகிவிடும்.
+தெளிந்து தேர்ந்த நண்பர்களுடன், சேர்ந்து, ஆற்ற வேண்டிய செயலை ஆராய்ந்து, தாமும் நன்கு சிந்தித்துச் செய்தால் ஆகாதது ஒன்றுமில்லை.
 
 **Meaning (English):**  
-Though able to win, let not one desire gambling; (for) even what is won is like a fish swallowing the iron in fish-hook.
+There is nothing too dificult to (be attained by) those who, before they act, reflect well themselves, and thoroughly consider (the matter) with chosen friends.
 
 
 ## 

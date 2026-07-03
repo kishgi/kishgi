@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தெரிந்த இனத்தொடு தேர்ந்தெண்ணிச் செய்வார்க்கு**  
-> **அரும்பொருள் யாதொன்றும் இல்**" — *குறள் 462*
+> "**அறிவின்மை இன்மையுள் இன்மை பிறிதின்மை**  
+> **இன்மையா வையா துலகு.**" — *குறள் 841*
 
 </div>
 
 **பொருள்:**  
-தெளிந்து தேர்ந்த நண்பர்களுடன், சேர்ந்து, ஆற்ற வேண்டிய செயலை ஆராய்ந்து, தாமும் நன்கு சிந்தித்துச் செய்தால் ஆகாதது ஒன்றுமில்லை.
+அறிவுப் பஞ்சம்தான் மிகக் கொடுமையான பஞ்சமாகும். மற்ற பஞ்சங்களைக்கூட உலகம் அவ்வளவாகப் பொருட்படுத்தாது.
 
 **Meaning (English):**  
-There is nothing too dificult to (be attained by) those who, before they act, reflect well themselves, and thoroughly consider (the matter) with chosen friends.
+The want of wisdom is the greatest of all wants; but that of wealth the world will not regard as such.
 
 
 ## 

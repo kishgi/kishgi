@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறிவின்மை இன்மையுள் இன்மை பிறிதின்மை**  
-> **இன்மையா வையா துலகு.**" — *குறள் 841*
+> "**பொருளல்ல வற்றைப் பொருளென்று உணரும்**  
+> **மருளானாம் மாணாப் பிறப்பு.**" — *குறள் 351*
 
 </div>
 
 **பொருள்:**  
-அறிவுப் பஞ்சம்தான் மிகக் கொடுமையான பஞ்சமாகும். மற்ற பஞ்சங்களைக்கூட உலகம் அவ்வளவாகப் பொருட்படுத்தாது.
+நிலையற்றவைகளை நிலையானவை என நம்புகின்ற அறியாமை மிக இழிவானதாகும்.
 
 **Meaning (English):**  
-The want of wisdom is the greatest of all wants; but that of wealth the world will not regard as such.
+Inglorious births are produced by the confusion (of mind) which considers those things to be real which are not real.
 
 
 ## 

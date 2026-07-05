@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பொருளல்ல வற்றைப் பொருளென்று உணரும்**  
-> **மருளானாம் மாணாப் பிறப்பு.**" — *குறள் 351*
+> "**ஐயத்தின் நீங்கித் தெளிந்தார்க்கு வையத்தின்**  
+> **வானம் நணிய துடைத்து.**" — *குறள் 353*
 
 </div>
 
 **பொருள்:**  
-நிலையற்றவைகளை நிலையானவை என நம்புகின்ற அறியாமை மிக இழிவானதாகும்.
+ஐயப்பாடுகளைத் தெளிந்த ஆராய்ச்சி வாயிலாகத் தீர்த்துக் கொண்டவர்களுக்குப் பூமியைவிட வானம் மிக அருகில் இருப்பதாகக் கருதுகின்ற ஊக்கம் ஏற்படும்.
 
 **Meaning (English):**  
-Inglorious births are produced by the confusion (of mind) which considers those things to be real which are not real.
+Heaven is nearer than earth to those men of purified minds who are freed from from doubt.
 
 
 ## 

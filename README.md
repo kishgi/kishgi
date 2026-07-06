@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஐயத்தின் நீங்கித் தெளிந்தார்க்கு வையத்தின்**  
-> **வானம் நணிய துடைத்து.**" — *குறள் 353*
+> "**அரியஎன்று ஆகாத இல்லைபொச் சாவாக்**  
+> **கருவியால் போற்றிச் செயின்.**" — *குறள் 537*
 
 </div>
 
 **பொருள்:**  
-ஐயப்பாடுகளைத் தெளிந்த ஆராய்ச்சி வாயிலாகத் தீர்த்துக் கொண்டவர்களுக்குப் பூமியைவிட வானம் மிக அருகில் இருப்பதாகக் கருதுகின்ற ஊக்கம் ஏற்படும்.
+மறதியில்லாமலும், அக்கறையுடனும் செயல்பட்டால், முடியாதது என்று எதுவுமே இல்லை.
 
 **Meaning (English):**  
-Heaven is nearer than earth to those men of purified minds who are freed from from doubt.
+There is nothing too dificult to be accomplished, if a man set about it carefully, with unflinching endeavour.
 
 
 ## 

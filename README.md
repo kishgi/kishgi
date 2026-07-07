@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அரியஎன்று ஆகாத இல்லைபொச் சாவாக்**  
-> **கருவியால் போற்றிச் செயின்.**" — *குறள் 537*
+> "**இல்லதென் இல்லவள் மாண்பானால் உள்ளதென்**  
+> **இல்லவள் மாணாக் கடை?**" — *குறள் 53*
 
 </div>
 
 **பொருள்:**  
-மறதியில்லாமலும், அக்கறையுடனும் செயல்பட்டால், முடியாதது என்று எதுவுமே இல்லை.
+நல்ல பண்புடைய மனைவி அமைந்த வாழ்க்கையில் எல்லாம் இருக்கும். அப்படியொரு மனைவி அமையாத வாழ்க்கையில் எதுவுமே இருக்காது.
 
 **Meaning (English):**  
-There is nothing too dificult to be accomplished, if a man set about it carefully, with unflinching endeavour.
+If his wife be eminent (in virtue), what does (that man) not possess ? If she be without excellence, what does (he) possess ?
 
 
 ## 

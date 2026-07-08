@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இல்லதென் இல்லவள் மாண்பானால் உள்ளதென்**  
-> **இல்லவள் மாணாக் கடை?**" — *குறள் 53*
+> "**மனைமாட்சி இல்லாள்கண் இல்லாயின் வாழ்க்கை**  
+> **எனைமாட்சித் தாயினும் இல்.**" — *குறள் 52*
 
 </div>
 
 **பொருள்:**  
-நல்ல பண்புடைய மனைவி அமைந்த வாழ்க்கையில் எல்லாம் இருக்கும். அப்படியொரு மனைவி அமையாத வாழ்க்கையில் எதுவுமே இருக்காது.
+நற்பண்புள்ள மனைவி அமையாத இல்வாழ்க்கை எவ்வளவு சிறப்புடையதாக இருந்தாலும் அதற்குத் தனிச்சிறப்புக் கிடையாது.
 
 **Meaning (English):**  
-If his wife be eminent (in virtue), what does (that man) not possess ? If she be without excellence, what does (he) possess ?
+If the wife be devoid of domestic excellence, whatever (other) greatness be possessed, the conjugal state, is nothing.
 
 
 ## 

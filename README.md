@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மனைமாட்சி இல்லாள்கண் இல்லாயின் வாழ்க்கை**  
-> **எனைமாட்சித் தாயினும் இல்.**" — *குறள் 52*
+> "**அறிவிலான் நெஞ்சுவந்து ஈதல் பிறிதியாதும்**  
+> **இல்லை பெறுவான் தவம்.**" — *குறள் 842*
 
 </div>
 
 **பொருள்:**  
-நற்பண்புள்ள மனைவி அமையாத இல்வாழ்க்கை எவ்வளவு சிறப்புடையதாக இருந்தாலும் அதற்குத் தனிச்சிறப்புக் கிடையாது.
+அறிவில்லாத ஒருவன் வள்ளலைப்போல ஒரு பொருளை மகிழ்ச்சியுடன் வழங்குவதற்குக் காரணம் வேறொன்றுமில்லை; அது அப்பொருளைப் பெறுகிறவன் பெற்றபேறு என்றுதான் கருதவேண்டும்.
 
 **Meaning (English):**  
-If the wife be devoid of domestic excellence, whatever (other) greatness be possessed, the conjugal state, is nothing.
+(The cause of) a fool cheerfully giving (something) is nothing else but the receiver’s merit (in a former birth).
 
 
 ## 

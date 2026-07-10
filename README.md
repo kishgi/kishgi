@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறிவிலான் நெஞ்சுவந்து ஈதல் பிறிதியாதும்**  
-> **இல்லை பெறுவான் தவம்.**" — *குறள் 842*
+> "**ஒல்வ தறிவது அறிந்ததன் கண்தங்கிச்**  
+> **செல்வார்க்குச் செல்லாதது இல்.**" — *குறள் 472*
 
 </div>
 
 **பொருள்:**  
-அறிவில்லாத ஒருவன் வள்ளலைப்போல ஒரு பொருளை மகிழ்ச்சியுடன் வழங்குவதற்குக் காரணம் வேறொன்றுமில்லை; அது அப்பொருளைப் பெறுகிறவன் பெற்றபேறு என்றுதான் கருதவேண்டும்.
+ஒரு செயலில் ஈ.டுபடும்போது அச்செயலைப் பற்றிய அனைத்தையும் ஆராய்ந்தறிந்து முயற்சி மேற்கொண்டால் முடியாதது எதுவுமில்லை.
 
 **Meaning (English):**  
-(The cause of) a fool cheerfully giving (something) is nothing else but the receiver’s merit (in a former birth).
+There is nothing which may not be accomplished by those who, before they attack (an enemy), make themselves acquainted with their own ability, and with whatever else is (needful) to be known, and apply themselves wholly to their object.
 
 
 ## 

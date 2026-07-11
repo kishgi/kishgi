@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஒல்வ தறிவது அறிந்ததன் கண்தங்கிச்**  
-> **செல்வார்க்குச் செல்லாதது இல்.**" — *குறள் 472*
+> "**உடையர் எனப்படுவது ஊக்கம் அஃ தில்லார்**  
+> **உடையது உடையரோ மற்று.**" — *குறள் 591*
 
 </div>
 
 **பொருள்:**  
-ஒரு செயலில் ஈ.டுபடும்போது அச்செயலைப் பற்றிய அனைத்தையும் ஆராய்ந்தறிந்து முயற்சி மேற்கொண்டால் முடியாதது எதுவுமில்லை.
+ஊக்கம் உடையவரே உடையவர் எனப்படுவர். ஊக்கமில்லாதவர் வேறு எதை உடையவராக இருந்தாலும் அவர் உடையவர் ஆக மாட்டார்.
 
 **Meaning (English):**  
-There is nothing which may not be accomplished by those who, before they attack (an enemy), make themselves acquainted with their own ability, and with whatever else is (needful) to be known, and apply themselves wholly to their object.
+Energy makes out the man of property; as for those who are destitute of it, do they (really) possess what they possess ?
 
 
 ## 

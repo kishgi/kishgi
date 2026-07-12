@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உடையர் எனப்படுவது ஊக்கம் அஃ தில்லார்**  
-> **உடையது உடையரோ மற்று.**" — *குறள் 591*
+> "**அறிந்தாற்றிச் செய்கிற்பாற்கு அல்லால் வினைதான்**  
+> **சிறந்தானென்று ஏவற்பாற் றன்று.**" — *குறள் 515*
 
 </div>
 
 **பொருள்:**  
-ஊக்கம் உடையவரே உடையவர் எனப்படுவர். ஊக்கமில்லாதவர் வேறு எதை உடையவராக இருந்தாலும் அவர் உடையவர் ஆக மாட்டார்.
+ஆய்ந்தறிந்து செய்து முடிக்கும் ஆற்றல் உள்ளவர்களை அல்லாமல் வேறொருவரைச் சிறந்தவர் எனக் கருதி ஒரு செயலில் ஈ.டுபடுத்தக் கூடாது.
 
 **Meaning (English):**  
-Energy makes out the man of property; as for those who are destitute of it, do they (really) possess what they possess ?
+(A king’s) work can only be accomplished by a man of wisdom and patient endurance; it is not of a nature to be given to one from mere personal attachment.
 
 
 ## 

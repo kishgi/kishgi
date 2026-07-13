@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறிந்தாற்றிச் செய்கிற்பாற்கு அல்லால் வினைதான்**  
-> **சிறந்தானென்று ஏவற்பாற் றன்று.**" — *குறள் 515*
+> "**முற்றியும் முற்றா தெறிந்தும் அறைப்படுத்தும்**  
+> **பற்றற் கரியது அரண்.**" — *குறள் 747*
 
 </div>
 
 **பொருள்:**  
-ஆய்ந்தறிந்து செய்து முடிக்கும் ஆற்றல் உள்ளவர்களை அல்லாமல் வேறொருவரைச் சிறந்தவர் எனக் கருதி ஒரு செயலில் ஈ.டுபடுத்தக் கூடாது.
+முற்றுகையிட்டோ, முற்றுகையிடாமலோ அல்லது வஞ்சனைச் சூழ்ச்சியாலோ பகைவரால் கைப்பற்றப்பட முடியாத வலிமையுடையதே அரண் எனப்படும்.
 
 **Meaning (English):**  
-(A king’s) work can only be accomplished by a man of wisdom and patient endurance; it is not of a nature to be given to one from mere personal attachment.
+A fort is that which cannot be captured by blockading, assaulting, or undermining it.
 
 
 ## 

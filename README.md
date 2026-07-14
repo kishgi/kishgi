@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**முற்றியும் முற்றா தெறிந்தும் அறைப்படுத்தும்**  
-> **பற்றற் கரியது அரண்.**" — *குறள் 747*
+> "**மிகினும் குறையினும் நோய்செய்யும் நூலோர்**  
+> **வளிமுதலா எண்ணிய மூன்று.**" — *குறள் 941*
 
 </div>
 
 **பொருள்:**  
-முற்றுகையிட்டோ, முற்றுகையிடாமலோ அல்லது வஞ்சனைச் சூழ்ச்சியாலோ பகைவரால் கைப்பற்றப்பட முடியாத வலிமையுடையதே அரண் எனப்படும்.
+வாதம், பித்தம், சிலேத்துமம் என்று மருத்துவ நூலோர் கணித்துள்ள மூன்றில் ஒன்று அளவுக்கு அதிகமானாலும் குறைந்தாலும் நோய் உண்டாகும்.
 
 **Meaning (English):**  
-A fort is that which cannot be captured by blockading, assaulting, or undermining it.
+If (food and work are either) excessive or deficient, the three things enumerated by (medical) writers, flatulence, biliousness, and phlegm, will cause (one) disease.
 
 
 ## 

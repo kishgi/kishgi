@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மிகினும் குறையினும் நோய்செய்யும் நூலோர்**  
-> **வளிமுதலா எண்ணிய மூன்று.**" — *குறள் 941*
+> "**ஐயப் படாஅது அகத்தது உணர்வானைத்**  
+> **தெய்வத்தோ டொப்பக் கொளல்.**" — *குறள் 702*
 
 </div>
 
 **பொருள்:**  
-வாதம், பித்தம், சிலேத்துமம் என்று மருத்துவ நூலோர் கணித்துள்ள மூன்றில் ஒன்று அளவுக்கு அதிகமானாலும் குறைந்தாலும் நோய் உண்டாகும்.
+ஒருவன் மனத்தில் உள்ளத்தைத், தெளிவாக உணர்ந்து கொள்ளக்கூடிய சக்தி தெய்வத்திற்கே உண்டு என்று கூறினால், அந்தத் திறமை படைத்த மனிதனையும் அத்தெய்வத்தோடு ஒப்பிடலாம்.
 
 **Meaning (English):**  
-If (food and work are either) excessive or deficient, the three things enumerated by (medical) writers, flatulence, biliousness, and phlegm, will cause (one) disease.
+He is to be esteemed a god who is able to ascertain without a doubt what is within (one’s mind).
 
 
 ## 

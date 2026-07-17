@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**செவுக்குண வில்லாத போழ்து சிறிது**  
-> **வயிற்றுக்கும் ஈயப் படும்.**" — *குறள் 412*
+> "**அமரகத்து ஆற்றறுக்கும் கல்லாமா அன்னார்**  
+> **தமரின் தனிமை தலை.**" — *குறள் 814*
 
 </div>
 
 **பொருள்:**  
-செவி வழியாக இன்பம் தரும் உணவு இல்லாதபோதே சிறிதளவு உணவு வயிற்றுக்குத் தரும் நிலை ஏற்படும்.
+போர்க்களத்தில் கீழே தள்ளி விட்டுத் தப்பித்து ஓடிப்போகும் குதிரையைப் போன்றவர்களின் நட்பைப் பெறுவதைக் காட்டிலும் தனித்து இருப்பது எவ்வளவோ சிறப்புடையதாகும்.
 
 **Meaning (English):**  
-When there is no food for the ear, give a little also to the stomach.
+Solitude is more to be desired than the society of those who resemble the untrained horses which throw down (their riders) in the fields of battle.
 
 
 ## 

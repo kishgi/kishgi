@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அமரகத்து ஆற்றறுக்கும் கல்லாமா அன்னார்**  
-> **தமரின் தனிமை தலை.**" — *குறள் 814*
+> "**விழுப்பேற்றின் அஃதொப்பது இல்லையார் மாட்டும்**  
+> **அழுக்காற்றின் அன்மை பெறின்.**" — *குறள் 162*
 
 </div>
 
 **பொருள்:**  
-போர்க்களத்தில் கீழே தள்ளி விட்டுத் தப்பித்து ஓடிப்போகும் குதிரையைப் போன்றவர்களின் நட்பைப் பெறுவதைக் காட்டிலும் தனித்து இருப்பது எவ்வளவோ சிறப்புடையதாகும்.
+யாரிடமும் பொறாமை கொள்ளாத பண்பு ஒருவர்க்கு வாய்க்கப் பெறுமேயானால் அதற்கு மேலான பேறு அவருக்கு வேறு எதுவுமில்லை.
 
 **Meaning (English):**  
-Solitude is more to be desired than the society of those who resemble the untrained horses which throw down (their riders) in the fields of battle.
+Amongst all attainable excellences there is none equal to that of being free from envy towords others.
 
 
 ## 

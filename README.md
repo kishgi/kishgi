@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**விழுப்பேற்றின் அஃதொப்பது இல்லையார் மாட்டும்**  
-> **அழுக்காற்றின் அன்மை பெறின்.**" — *குறள் 162*
+> "**ஊடல் உணர்தல் புணர்தல் இவைகாமம்**  
+> **கூடியார் பெற்ற பயன்.**" — *குறள் 1109*
 
 </div>
 
 **பொருள்:**  
-யாரிடமும் பொறாமை கொள்ளாத பண்பு ஒருவர்க்கு வாய்க்கப் பெறுமேயானால் அதற்கு மேலான பேறு அவருக்கு வேறு எதுவுமில்லை.
+ஊடல் கொள்வதும், அதனால் விளையும் இன்பம் போதுமென உணர்ந்து அதற்கும் மேலான இன்பம் காணப் புணர்ந்து மயங்குவதும் காதல் வாழ்வினர் பெற்றிடும் பயன்களாகும்.
 
 **Meaning (English):**  
-Amongst all attainable excellences there is none equal to that of being free from envy towords others.
+Love quarrel, reconciliation and intercourse - these are the advantages reaped by those who marry for lust.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஊடல் உணர்தல் புணர்தல் இவைகாமம்**  
-> **கூடியார் பெற்ற பயன்.**" — *குறள் 1109*
+> "**நினைத்தொன்று சொல்லாயோ நெஞ்சே எனைத்தொன்றும்**  
+> **எவ்வநோய் தீர்க்கும் மருந்து.**" — *குறள் 1241*
 
 </div>
 
 **பொருள்:**  
-ஊடல் கொள்வதும், அதனால் விளையும் இன்பம் போதுமென உணர்ந்து அதற்கும் மேலான இன்பம் காணப் புணர்ந்து மயங்குவதும் காதல் வாழ்வினர் பெற்றிடும் பயன்களாகும்.
+எந்த மருந்தினாலும் தீராத என் காதல் நோய் தீர்ந்திட ஏதாவது ஒரு மருந்தை நினைத்துப் பார்த்து, நெஞ்சே! உன்னால் சொல்ல முடியுமா?.
 
 **Meaning (English):**  
-Love quarrel, reconciliation and intercourse - these are the advantages reaped by those who marry for lust.
+O my soul, will you not think and tell me some medicine be it what it may, that can cure this incurable malady?
 
 
 ## 

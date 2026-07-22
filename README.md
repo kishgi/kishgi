@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஊதியம் என்பது ஒருவற்குப் பேதையார்**  
-> **கேண்மை ஒரீஇ விடல்.**" — *குறள் 797*
+> "**உள்ளற்க உள்ளம் சிறுகுவ கொள்ளற்க**  
+> **அல்லற்கண் ஆற்றறுப்பார் நட்பு.**" — *குறள் 798*
 
 </div>
 
 **பொருள்:**  
-ஒருவருக்குக் கிடைத்த நற்பயன் என்பது அவர் அறிவில்லாத ஒருவருடன் கொண்டிருந்த நட்பைத் துறந்து விடுவதேயாகும்.
+ஊக்கத்தைச் சிதைக்கக்கூடிய செயல்களையும், துன்பம் வரும்போது விலகிவிடக்கூடிய நண்பர்களையும் நினைத்துப் பார்ககாமலே இருந்து விட வேண்டும்.
 
 **Meaning (English):**  
-It is indead a gain for one to renounce the friendship of fools.
+Do not think of things that discourage your mind, nor contract friendship with those who would forsake you in adversity.
 
 
 ## 

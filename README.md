@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உள்ளற்க உள்ளம் சிறுகுவ கொள்ளற்க**  
-> **அல்லற்கண் ஆற்றறுப்பார் நட்பு.**" — *குறள் 798*
+> "**அறத்தாற்றின் இல்வாழ்க்கை ஆற்றின் புறத்தாற்றில்**  
+> **போஒய்ப் பெறுவ தெவன்?**" — *குறள் 46*
 
 </div>
 
 **பொருள்:**  
-ஊக்கத்தைச் சிதைக்கக்கூடிய செயல்களையும், துன்பம் வரும்போது விலகிவிடக்கூடிய நண்பர்களையும் நினைத்துப் பார்ககாமலே இருந்து விட வேண்டும்.
+அறநெறியில் இல்வாழ்க்கையை அமைத்துக் கொண்டவர்கள் பெற்றிடும் பயனை, வேறு நெறியில் சென்று பெற்றிட இயலுமோ? இயலாது.
 
 **Meaning (English):**  
-Do not think of things that discourage your mind, nor contract friendship with those who would forsake you in adversity.
+What will he who lives virtuously in the domestic state gain by going into the other, (ascetic) state ?
 
 
 ## 

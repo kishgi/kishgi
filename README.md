@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வினைத்திட்பம் என்பது ஒருவன் மனத்திட்பம்**  
-> **மற்றைய எல்லாம் பிற.**" — *குறள் 661*
+> "**தீயவை செய்தார் கெடுதல் நிழல்தன்னை**  
+> **வீயாது அஇஉறைந் தற்று.**" — *குறள் 208*
 
 </div>
 
 **பொருள்:**  
-மற்றவை எல்லாம் இருந்தும் ஒருவரது மனத்தில் உறுதி மட்டும் இல்லாவிட்டால் அவரது செயலிலும் உறுதி இருக்காது.
+ஒருவருடைய நிழல் அவருடனேயே ஒன்றியிருப்பதைப்போல், தீய செயல்களில் ஈ.டுபடுகிறவர்களை விட்டுத் தீமையும் விலகாமல், தொடர்ந்து ஒட்டிக் கொண்டிருக்கும்.
 
 **Meaning (English):**  
-Firmness in action is (simply) one’s firmness of mind; all other (abilities) are not of this nature.
+Destruction will dwell at the heels of those who commit evil even as their shadow that leaves them not.
 
 
 ## 

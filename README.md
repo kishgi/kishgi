@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தீயவை செய்தார் கெடுதல் நிழல்தன்னை**  
-> **வீயாது அஇஉறைந் தற்று.**" — *குறள் 208*
+> "**கடிதோச்சி மெல்ல எறிக நெடிதாக்கம்**  
+> **நீங்காமை வேண்டு பவர்.**" — *குறள் 562*
 
 </div>
 
 **பொருள்:**  
-ஒருவருடைய நிழல் அவருடனேயே ஒன்றியிருப்பதைப்போல், தீய செயல்களில் ஈ.டுபடுகிறவர்களை விட்டுத் தீமையும் விலகாமல், தொடர்ந்து ஒட்டிக் கொண்டிருக்கும்.
+குற்றங்கள் நிகழாமல் இருக்கக் கண்டிக்கும்போது கடுமை காட்டித், தண்டிக்கும் போது மென்மை காட்டுகிறவர்களின் செல்வாக்குதான் தொய்வின்றி நெடுநாள் நீடிக்கும்.
 
 **Meaning (English):**  
-Destruction will dwell at the heels of those who commit evil even as their shadow that leaves them not.
+Let the king, who desires that his prosperity may long remain, commence his preliminary enquires with strictness, and then punish with mildness.
 
 
 ## 

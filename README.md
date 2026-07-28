@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கடிதோச்சி மெல்ல எறிக நெடிதாக்கம்**  
-> **நீங்காமை வேண்டு பவர்.**" — *குறள் 562*
+> "**செறாஅச் சிறுசொல்லும் செற்றார்போல் நோக்கும்**  
+> **உறாஅர்போன்று உற்றார் குறிப்பு.**" — *குறள் 1097*
 
 </div>
 
 **பொருள்:**  
-குற்றங்கள் நிகழாமல் இருக்கக் கண்டிக்கும்போது கடுமை காட்டித், தண்டிக்கும் போது மென்மை காட்டுகிறவர்களின் செல்வாக்குதான் தொய்வின்றி நெடுநாள் நீடிக்கும்.
+பகையுணர்வு இல்லாத கடுமொழியும், பகைவரை நோக்குவது போன்ற கடுவிழியும், வெளியில் அயலார் போல நடித்துக்கொண்டு உள்ளத்தால் அன்பு கொண்டிருப்பவரை அடையாளம் காட்டும் குறிப்புகளாகும்.
 
 **Meaning (English):**  
-Let the king, who desires that his prosperity may long remain, commence his preliminary enquires with strictness, and then punish with mildness.
+Little words that are harsh and looks that are hateful are (but) the expressions of lovers who wish to act like strangers.
 
 
 ## 

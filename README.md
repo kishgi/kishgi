@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**செறாஅச் சிறுசொல்லும் செற்றார்போல் நோக்கும்**  
-> **உறாஅர்போன்று உற்றார் குறிப்பு.**" — *குறள் 1097*
+> "**அடல்வேண்டும் ஐந்தன் புலத்தை விடல்வேண்டும்**  
+> **வேண்டிய வெல்லாம் ஒருங்கு.**" — *குறள் 343*
 
 </div>
 
 **பொருள்:**  
-பகையுணர்வு இல்லாத கடுமொழியும், பகைவரை நோக்குவது போன்ற கடுவிழியும், வெளியில் அயலார் போல நடித்துக்கொண்டு உள்ளத்தால் அன்பு கொண்டிருப்பவரை அடையாளம் காட்டும் குறிப்புகளாகும்.
+ஐம் புலன்களையும் அடக்கி வெல்வதும், அப்புலன்கள் விரும்புகின்றவற்றை யெல்லாம் விட்டுவிடுவதும் துறவுக்கு இலக்கணமாகும்.
 
 **Meaning (English):**  
-Little words that are harsh and looks that are hateful are (but) the expressions of lovers who wish to act like strangers.
+Let the five senses be destroyed; and at the same time, let everything be abandoned that (the ascetic) has (formerly) desired.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பயனில பல்லார்முன் சொல்லல் நயனில**  
-> **நட்டார்கண் செய்தலிற் றீது.**" — *குறள் 192*
+> "**அறம்பொருள் இன்பம் உயிரச்சம் நான்கின்**  
+> **திறந்தெரிந்து தேறப் படும்.**" — *குறள் 501*
 
 </div>
 
 **பொருள்:**  
-பலர்முன் பயனில்லாத சொற்களைக் கூறுவது, நட்புக்கு மாறாகச் செயல்படுவதைக் காட்டிலும் தீமையுடையதாகும்.
+அறவழியில் உறுதியானவனாகவும், பொருள் வகையில் நாணயமானவனாகவும், இன்பம் தேடி மயங்காதவனாகவும், தன்னுயிருக்கு அஞ்சாதவனாகவும் இருப்பவனையே ஆய்ந்தறிந்து ஒரு பணிக்கு அமர்த்த வேண்டும்.
 
 **Meaning (English):**  
-To speak useless things in the presence of many is a greater evil than to do unkind things towards friends.
+Let (a minister) be chosen, after he has been tried by means of these four things, viz,-his virtue, (love of) money, (love of) sexual pleasure, and tear of (losing) life.
 
 
 ## 

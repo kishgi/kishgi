@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறம்பொருள் இன்பம் உயிரச்சம் நான்கின்**  
-> **திறந்தெரிந்து தேறப் படும்.**" — *குறள் 501*
+> "**மனநலம் நன்குடைய ராயினும் சான்றோர்க்கு**  
+> **இனநலம் ஏமாப் புடைத்து.**" — *குறள் 458*
 
 </div>
 
 **பொருள்:**  
-அறவழியில் உறுதியானவனாகவும், பொருள் வகையில் நாணயமானவனாகவும், இன்பம் தேடி மயங்காதவனாகவும், தன்னுயிருக்கு அஞ்சாதவனாகவும் இருப்பவனையே ஆய்ந்தறிந்து ஒரு பணிக்கு அமர்த்த வேண்டும்.
+மனவளம் மிக்க சான்றோராக இருப்பினும் அவர் சேர்ந்துள்ள கூட்டத்தினரைப் பொருத்தே வலிமை வந்து வாய்க்கும்.
 
 **Meaning (English):**  
-Let (a minister) be chosen, after he has been tried by means of these four things, viz,-his virtue, (love of) money, (love of) sexual pleasure, and tear of (losing) life.
+Although they may have great (natural) goodness of mind, yet good society will tend to strengthen it.
 
 
 ## 

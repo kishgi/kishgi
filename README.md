@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மனநலம் நன்குடைய ராயினும் சான்றோர்க்கு**  
-> **இனநலம் ஏமாப் புடைத்து.**" — *குறள் 458*
+> "**காமம் எனவொன்றோ கண்ணின்றென் நெஞ்சத்தை**  
+> **யாமத்தும் ஆளும் தொழில்.**" — *குறள் 1252*
 
 </div>
 
 **பொருள்:**  
-மனவளம் மிக்க சான்றோராக இருப்பினும் அவர் சேர்ந்துள்ள கூட்டத்தினரைப் பொருத்தே வலிமை வந்து வாய்க்கும்.
+காதல் வேட்கை எனப்படும் ஒன்று இரக்கமே இல்லாதது; ஏனெனில் அது என் நெஞ்சில் நள்ளிரவிலும் ஆதிக்கம் செலுத்தி அலைக்கழிக்கிறது.
 
 **Meaning (English):**  
-Although they may have great (natural) goodness of mind, yet good society will tend to strengthen it.
+Even at midnight is my mind worried by lust, and this one thing, alas! is without mercy.
 
 
 ## 

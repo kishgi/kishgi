@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பிறர்நாணத் தக்கது தான்நாணா னாயின்**  
-> **அறம்நாணத் தக்கது உடைத்து.**" — *குறள் 1018*
+> "**அன்பறிவு ஆராய்ந்த சொல்வன்மை தூதுரைப்பார்க்கு**  
+> **இன்றி யமையாத மூன்று.**" — *குறள் 682*
 
 </div>
 
 **பொருள்:**  
-வெட்கப்படவேண்டிய அளவுக்குப் பழிக்கு ஆளானவர்கள் அதற்காக வெட்கப்படாமல் இருந்தால் அவர்களை விட்டு அறநெறி வெட்கப்பட்டு அகன்று விட்டதாகக் கருத வேண்டும்.
+தூது செல்பவருக்குத் தேவைப்படும் மூன்று முக்கியமான பண்புகள் அன்பு, அறிவு, ஆராய்ந்து பேசும் சொல்வன்மை.
 
 **Meaning (English):**  
-Virtue is likely to forsake him who shamelessly does what others are ashamed of.
+Love (to his sovereign), knowledge (of his afairs), and a discriminating power of speech (before other sovereigns) are the three sine qua non qualifications of an ambassador.
 
 
 ## 

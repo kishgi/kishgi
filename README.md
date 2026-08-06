@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அன்பறிவு ஆராய்ந்த சொல்வன்மை தூதுரைப்பார்க்கு**  
-> **இன்றி யமையாத மூன்று.**" — *குறள் 682*
+> "**நோக்கினாள் நோக்கி இறைஞ்சினாள் அஃதவள்**  
+> **யாப்பினுள் அட்டிய நீர்.**" — *குறள் 1093*
 
 </div>
 
 **பொருள்:**  
-தூது செல்பவருக்குத் தேவைப்படும் மூன்று முக்கியமான பண்புகள் அன்பு, அறிவு, ஆராய்ந்து பேசும் சொல்வன்மை.
+கடைக்கண்ணால் அவள் என்னைப் பார்த்த பார்வையில் நாணம் மிகுந்திருந்தது; அந்தச் செயல் அவள் என்மீது கொண்ட அன்புப் பயிருக்கு நீராக இருந்தது.
 
 **Meaning (English):**  
-Love (to his sovereign), knowledge (of his afairs), and a discriminating power of speech (before other sovereigns) are the three sine qua non qualifications of an ambassador.
+She has looked (at men) and stooped (her head); and that (sign) waters as it were (the corn of) our love.
 
 
 ## 

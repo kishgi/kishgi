@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கல்லா தவரும் நனிநல்லர் கற்றார்முன்**  
-> **சொல்லா திருக்கப் பெறின்.**" — *குறள் 403*
+> "**வலியார்க்கு மாறேற்றல் ஓம்புக ஓம்பா**  
+> **மெலியார்மேல் மேக பகை.**" — *குறள் 861*
 
 </div>
 
 **பொருள்:**  
-கற்றவர்களின் முன்னிலையில் எதுவும் பேசாமல் இருக்கக் கற்றிருந்தால் கல்வி கற்காதவர்கள்கூட நல்லவர்களாகவே கருதப்படுவார்கள்.
+மெலியோரை விடுத்து, வலியோரை எதிர்த்துப் போரிட விரும்புவதே பகைமாட்சி எனப் போற்றப்படும்.
 
 **Meaning (English):**  
-The unlearned also are very excellent men, if they know how to keep silence before the learned.
+Avoid offering resistance to the strong; (but) never fail to cherish enmity towards the weak.
 
 
 ## 

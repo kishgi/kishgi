@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அழிவந்த செய்யினும் அன்பறார் அன்பின்**  
-> **வழிவந்த கேண்மை யவர்.**" — *குறள் 807*
+> "**தோன்றின் புகழொடு தோன்றுக அஃதிலார்**  
+> **தோன்றலின் தோன்றாமை நன்று.**" — *குறள் 236*
 
 </div>
 
 **பொருள்:**  
-தம்முடன் பழகியவர்கள் தமக்கே எதிராக அழிவுதரும் காரியத்தைச் செய்தாலும்கூட அன்பின் அடிப்படையில் நட்புக் கொண்டவர் அதற்காக அந்த அன்பை விலக்கிக் கொள்ள மாட்டார்.
+எந்தத் துறையில் ஈடுபட்டாலும் அதில் புகழுடன் விளங்கவேண்டும்; இயலாதவர்கள் அந்தத் துறையில் ஈ.டுபடாமல் இருப்பதே நல்லது.
 
 **Meaning (English):**  
-Those who have (long) stood in the path of afection will not give it up even if their friends cause (them) their ruin.
+If you are born (in this world), be born with qualities conductive to fame. From those who are destitute of them it will be better not to be born.
 
 
 ## 

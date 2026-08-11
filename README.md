@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தோன்றின் புகழொடு தோன்றுக அஃதிலார்**  
-> **தோன்றலின் தோன்றாமை நன்று.**" — *குறள் 236*
+> "**முகத்தின் முதுக்குறைந்தது உண்டோ உவப்பினும்**  
+> **காயினும் தான்முந் துறும்.**" — *குறள் 707*
 
 </div>
 
 **பொருள்:**  
-எந்தத் துறையில் ஈடுபட்டாலும் அதில் புகழுடன் விளங்கவேண்டும்; இயலாதவர்கள் அந்தத் துறையில் ஈ.டுபடாமல் இருப்பதே நல்லது.
+உள்ளத்தில் உள்ள விருப்பு வெறுப்புகளை முந்திக் கொண்டு வெளியிடுவதில் முகத்தைப் போல அறிவு மிக்கது வேறெதுவுமில்லை.
 
 **Meaning (English):**  
-If you are born (in this world), be born with qualities conductive to fame. From those who are destitute of them it will be better not to be born.
+Is there anything so full of knowledge as the face ? (No.) it precedes the mind, whether (the latter is) pleased or vexed.
 
 
 ## 

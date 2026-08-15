@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பாடுபெறுதியோ நெஞ்சே கொடியார்க்கென்**  
-> **வாடுதோட் பூசல் உரைத்து.**" — *குறள் 1237*
+> "**தம்மின்தம் மக்கள் அறிவுடைமை மாநிலத்து**  
+> **மன்னுயிர்க் கெல்லாம் இனிது.**" — *குறள் 68*
 
 </div>
 
 **பொருள்:**  
-நெஞ்சே! இரக்கமற்று என்னைப் பிரிந்திருக்கும் அவருக்கும் வாடி வதங்கும் என் தோள்களின் துன்பத்தை உரைத்துப் பெருமை அடைய மாட்டாயோ?.
+பெற்றோரைக் காட்டிலும் பிள்ளைகள் அறிவிற் சிறந்து விளங்கினால், அது பெற்றோருக்கு மட்டுமேயன்றி உலகில் வாழும் அனைவருக்கும் அக மகிழ்ச்சி தருவதாகும்.
 
 **Meaning (English):**  
-Can you O my soul! gain glory by relating to the (so-called) cruel one the clamour of my fading shoulders?
+That their children should possess knowledge is more pleasing to all men of this great earth than to themselves.
 
 
 ## 

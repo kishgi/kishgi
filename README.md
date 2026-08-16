@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தம்மின்தம் மக்கள் அறிவுடைமை மாநிலத்து**  
-> **மன்னுயிர்க் கெல்லாம் இனிது.**" — *குறள் 68*
+> "**சொலல்வல்லன் சோர்விலன் அஞ்சான் அவனை**  
+> **இகல்வெல்லல் யார்க்கும் அரிது.**" — *குறள் 647*
 
 </div>
 
 **பொருள்:**  
-பெற்றோரைக் காட்டிலும் பிள்ளைகள் அறிவிற் சிறந்து விளங்கினால், அது பெற்றோருக்கு மட்டுமேயன்றி உலகில் வாழும் அனைவருக்கும் அக மகிழ்ச்சி தருவதாகும்.
+சொல்லாற்றல் படைத்தவனாகவும், சோர்வு அறியாதவனாகவும், அஞ்சா நெஞ்சங் கொண்டவனாகவும் இருப்பவனை எதிர்த்து எவராலும் வெல்ல முடியாது.
 
 **Meaning (English):**  
-That their children should possess knowledge is more pleasing to all men of this great earth than to themselves.
+It is impossible for any one to conquer him by intrique who possesses power of speech, and is neither faulty nor timid.
 
 
 ## 

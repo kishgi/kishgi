@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சொலல்வல்லன் சோர்விலன் அஞ்சான் அவனை**  
-> **இகல்வெல்லல் யார்க்கும் அரிது.**" — *குறள் 647*
+> "**மறந்தும் பிறன்கேடு சூழற்க சூழின்**  
+> **அறஞ்சூழம் சூழ்ந்தவன் கேடு.**" — *குறள் 204*
 
 </div>
 
 **பொருள்:**  
-சொல்லாற்றல் படைத்தவனாகவும், சோர்வு அறியாதவனாகவும், அஞ்சா நெஞ்சங் கொண்டவனாகவும் இருப்பவனை எதிர்த்து எவராலும் வெல்ல முடியாது.
+மறந்தும்கூட மற்றவர்க்குக் கேடு செய்ய நினைக்கக் கூடாது; அப்படி நினைத்தால் அவனுக்குக் கேடு உண்டாக்க அவனை அறம் முற்றுகையிட்டு விடும்.
 
 **Meaning (English):**  
-It is impossible for any one to conquer him by intrique who possesses power of speech, and is neither faulty nor timid.
+Even though forgetfulness meditate not the ruin of another. Virtue will meditate the ruin of him who thus meditates.
 
 
 ## 

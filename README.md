@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மறந்தும் பிறன்கேடு சூழற்க சூழின்**  
-> **அறஞ்சூழம் சூழ்ந்தவன் கேடு.**" — *குறள் 204*
+> "**சிறுகாப்பிற் பேரிடத்த தாகி உறுபகை**  
+> **ஊக்கம் அழிப்ப தரண்.**" — *குறள் 744*
 
 </div>
 
 **பொருள்:**  
-மறந்தும்கூட மற்றவர்க்குக் கேடு செய்ய நினைக்கக் கூடாது; அப்படி நினைத்தால் அவனுக்குக் கேடு உண்டாக்க அவனை அறம் முற்றுகையிட்டு விடும்.
+உட்பகுதி பரந்த இடமாக அமைந்து, பாதுகாக்கப் படவேண்டிய பகுதி சிறிய இடமாக அமைந்து, கடும் பகையின் ஆற்றலை அழிக்கக் கூடியதே அரண் எனப்படும்.
 
 **Meaning (English):**  
-Even though forgetfulness meditate not the ruin of another. Virtue will meditate the ruin of him who thus meditates.
+A fort is that which has an extensive space within, but only small places to be guarded, and such as can destroy the courage of besieging foes.
 
 
 ## 

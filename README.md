@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சிறுகாப்பிற் பேரிடத்த தாகி உறுபகை**  
-> **ஊக்கம் அழிப்ப தரண்.**" — *குறள் 744*
+> "**கண்ணுடையர் என்பவர் கற்றோர் முகத்திரண்டு**  
+> **புண்ணுடையர் கல்லா தவர்.**" — *குறள் 393*
 
 </div>
 
 **பொருள்:**  
-உட்பகுதி பரந்த இடமாக அமைந்து, பாதுகாக்கப் படவேண்டிய பகுதி சிறிய இடமாக அமைந்து, கடும் பகையின் ஆற்றலை அழிக்கக் கூடியதே அரண் எனப்படும்.
+கண்ணில்லாவிடினும் அவர் கற்றவராக இருப்பின் கண்ணுடையவராகவே கருதப்படுவார். கல்லாதவருக்குக் கண் இருப்பினும் அது புண் என்றே கருதப்படும்.
 
 **Meaning (English):**  
-A fort is that which has an extensive space within, but only small places to be guarded, and such as can destroy the courage of besieging foes.
+The learned are said to have eyes, but the unlearned have (merely) two sores in their face.
 
 
 ## 

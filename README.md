@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கண்ணுடையர் என்பவர் கற்றோர் முகத்திரண்டு**  
-> **புண்ணுடையர் கல்லா தவர்.**" — *குறள் 393*
+> "**அல்லற்பட்டு ஆற்றாது அழுதகண் ணீரன்றே**  
+> **செல்வத்தைத் தேய்க்கும் படை**" — *குறள் 555*
 
 </div>
 
 **பொருள்:**  
-கண்ணில்லாவிடினும் அவர் கற்றவராக இருப்பின் கண்ணுடையவராகவே கருதப்படுவார். கல்லாதவருக்குக் கண் இருப்பினும் அது புண் என்றே கருதப்படும்.
+கொடுமை பொறுக்க முடியாமல் மக்கள் சிந்தும் கண்ணீர் ஆட்சியை அழிக்கும் படைக்கருவியாகும்.
 
 **Meaning (English):**  
-The learned are said to have eyes, but the unlearned have (merely) two sores in their face.
+Will not the tears, shed by a people who cannot endure the oppression which they sufer (from their king), become a saw to waste away his wealth ?
 
 
 ## 

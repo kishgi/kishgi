@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அல்லற்பட்டு ஆற்றாது அழுதகண் ணீரன்றே**  
-> **செல்வத்தைத் தேய்க்கும் படை**" — *குறள் 555*
+> "**தொடலைக் குறுந்தொடி தந்தாள் மடலொடு**  
+> **மாலை உழக்கும் துயர்.**" — *குறள் 1135*
 
 </div>
 
 **பொருள்:**  
-கொடுமை பொறுக்க முடியாமல் மக்கள் சிந்தும் கண்ணீர் ஆட்சியை அழிக்கும் படைக்கருவியாகும்.
+மேகலையையும் மெல்லிய வளையலையும் அணிந்த மங்கை மாலை மலரும் நோயான காதலையும், மடலூர்தல் எனும் வேலையையும் எனக்குத் தந்து விட்டாள்.
 
 **Meaning (English):**  
-Will not the tears, shed by a people who cannot endure the oppression which they sufer (from their king), become a saw to waste away his wealth ?
+She with the small garland-like bracelets has given me the palmyra horse and the sorrow that is endured at night.
 
 
 ## 

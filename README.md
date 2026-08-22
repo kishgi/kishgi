@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தொடலைக் குறுந்தொடி தந்தாள் மடலொடு**  
-> **மாலை உழக்கும் துயர்.**" — *குறள் 1135*
+> "**மனைக்தக்க மாண்புடையள் ஆகித்தற் கொண்டான்**  
+> **வளத்தக்காள் வாழ்க்கைத் துணை.**" — *குறள் 51*
 
 </div>
 
 **பொருள்:**  
-மேகலையையும் மெல்லிய வளையலையும் அணிந்த மங்கை மாலை மலரும் நோயான காதலையும், மடலூர்தல் எனும் வேலையையும் எனக்குத் தந்து விட்டாள்.
+இல்லறத்திற்குரிய பண்புகளுடன், பொருள் வளத்துக்குத் தக்கவாறு குடும்பம் நடத்துபவள், கணவனின் வாழ்வுக்குப் பெருந்துணையாவாள்.
 
 **Meaning (English):**  
-She with the small garland-like bracelets has given me the palmyra horse and the sorrow that is endured at night.
+She who has the excellence of home virtues, and can expend within the means of her husband, is a help in the domestic state.
 
 
 ## 

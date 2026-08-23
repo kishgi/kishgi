@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மனைக்தக்க மாண்புடையள் ஆகித்தற் கொண்டான்**  
-> **வளத்தக்காள் வாழ்க்கைத் துணை.**" — *குறள் 51*
+> "**தெரிந்த இனத்தொடு தேர்ந்தெண்ணிச் செய்வார்க்கு**  
+> **அரும்பொருள் யாதொன்றும் இல்**" — *குறள் 462*
 
 </div>
 
 **பொருள்:**  
-இல்லறத்திற்குரிய பண்புகளுடன், பொருள் வளத்துக்குத் தக்கவாறு குடும்பம் நடத்துபவள், கணவனின் வாழ்வுக்குப் பெருந்துணையாவாள்.
+தெளிந்து தேர்ந்த நண்பர்களுடன், சேர்ந்து, ஆற்ற வேண்டிய செயலை ஆராய்ந்து, தாமும் நன்கு சிந்தித்துச் செய்தால் ஆகாதது ஒன்றுமில்லை.
 
 **Meaning (English):**  
-She who has the excellence of home virtues, and can expend within the means of her husband, is a help in the domestic state.
+There is nothing too dificult to (be attained by) those who, before they act, reflect well themselves, and thoroughly consider (the matter) with chosen friends.
 
 
 ## 

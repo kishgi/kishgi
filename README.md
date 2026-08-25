@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இரவென்னும் ஏமாப்பில் தோணி கரவென்னும்**  
-> **பார்தாக்கப் பக்கு விடும்.**" — *குறள் 1068*
+> "**அழக் கொண்ட எல்லாம் அழப்போம் இழப்பினும்**  
+> **பிற்பயக்கும் நற்பா லவை.**" — *குறள் 659*
 
 </div>
 
 **பொருள்:**  
-இருப்பதை மறைத்து இல்லையென்று கூறும் கல் நெஞ்சின் மீது, இரத்தல் எனப்படும் பாதுகாப்பற்ற தோணி மோதினால் பிளந்து நொறுங்கிவிடும்.
+பிறர் அழத் திரட்டிய செல்வம் அழ அழப் போய்விடும். நல்வழியில் வந்த செல்வமென்றால் அதனை இழந்தாலும் மீண்டும் வந்து பயன் தரும்.
 
 **Meaning (English):**  
-The unsafe raft of begging will split when it strikes on the rock of refusal.
+All that has been obtained with tears (to the victim) will depart with tears (to himself); but what has been by fair means; though with loss at first, will afterwards yield fruit.
 
 
 ## 

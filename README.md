@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அழக் கொண்ட எல்லாம் அழப்போம் இழப்பினும்**  
-> **பிற்பயக்கும் நற்பா லவை.**" — *குறள் 659*
+> "**ஒறுத்தார்க்கு ஒருநாளை இன்பம் பொறுத்தார்க்குப்**  
+> **பொன்றுந் துணையும் புகழ்.**" — *குறள் 156*
 
 </div>
 
 **பொருள்:**  
-பிறர் அழத் திரட்டிய செல்வம் அழ அழப் போய்விடும். நல்வழியில் வந்த செல்வமென்றால் அதனை இழந்தாலும் மீண்டும் வந்து பயன் தரும்.
+தமக்குக் கேடு செய்தவரை மன்னித்திடாமல் தண்டிப்பவர்க்கு அந்த ஒரு நாள் மட்டுமே இன்பமாக அமையும். மறப்போம் மன்னிப்போம் எனப் பொறுமை கடைப் பிடிப்பபோருக்கோ, வாழ்நாள் முழுதும் புகழ்மிக்கதாக அமையும்.
 
 **Meaning (English):**  
-All that has been obtained with tears (to the victim) will depart with tears (to himself); but what has been by fair means; though with loss at first, will afterwards yield fruit.
+The pleasure of the resentful continues for a day. The praise of the patient will continue until (the final destruction of) the world.
 
 
 ## 

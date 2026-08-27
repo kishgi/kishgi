@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஒறுத்தார்க்கு ஒருநாளை இன்பம் பொறுத்தார்க்குப்**  
-> **பொன்றுந் துணையும் புகழ்.**" — *குறள் 156*
+> "**அறிவுடையார் ஆவ தறிவார் அறிவிலார்**  
+> **அஃதறி கல்லா தவர்.**" — *குறள் 427*
 
 </div>
 
 **பொருள்:**  
-தமக்குக் கேடு செய்தவரை மன்னித்திடாமல் தண்டிப்பவர்க்கு அந்த ஒரு நாள் மட்டுமே இன்பமாக அமையும். மறப்போம் மன்னிப்போம் எனப் பொறுமை கடைப் பிடிப்பபோருக்கோ, வாழ்நாள் முழுதும் புகழ்மிக்கதாக அமையும்.
+ஒரு விளைவுக்கு எதிர் விளைவு எப்படியிருக்குமென அறிவுடையவர்கள்தான் சிந்திப்பார்கள்; அறிவில்லாதவர்கள் சிந்திக்க மாட்டார்கள்.
 
 **Meaning (English):**  
-The pleasure of the resentful continues for a day. The praise of the patient will continue until (the final destruction of) the world.
+The wise are those who know beforehand what will happen; those who do not know this are the unwise.
 
 
 ## 

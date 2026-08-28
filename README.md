@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறிவுடையார் ஆவ தறிவார் அறிவிலார்**  
-> **அஃதறி கல்லா தவர்.**" — *குறள் 427*
+> "**கையறி யாமை உடைத்தே பொருள்கொடுத்து**  
+> **மெய்யறி யாமை கொளல்.**" — *குறள் 925*
 
 </div>
 
 **பொருள்:**  
-ஒரு விளைவுக்கு எதிர் விளைவு எப்படியிருக்குமென அறிவுடையவர்கள்தான் சிந்திப்பார்கள்; அறிவில்லாதவர்கள் சிந்திக்க மாட்டார்கள்.
+ஒருவன் தன்னிலை மறந்து மயங்கியிருப்பதற்காகப், போதைப் பொருளை விலை கொடுத்து வாங்குதல் விவரிக்கவே முடியாத மூடத்தனமாகும்.
 
 **Meaning (English):**  
-The wise are those who know beforehand what will happen; those who do not know this are the unwise.
+To give money and purchase unconsciousness is the result of one’s ignorance of (one’s own actions).
 
 
 ## 

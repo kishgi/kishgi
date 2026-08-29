@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கையறி யாமை உடைத்தே பொருள்கொடுத்து**  
-> **மெய்யறி யாமை கொளல்.**" — *குறள் 925*
+> "**மன்னர் விழைப விழையாமை மன்னரால்**  
+> **மன்னிய ஆக்கந் தரும்.**" — *குறள் 692*
 
 </div>
 
 **பொருள்:**  
-ஒருவன் தன்னிலை மறந்து மயங்கியிருப்பதற்காகப், போதைப் பொருளை விலை கொடுத்து வாங்குதல் விவரிக்கவே முடியாத மூடத்தனமாகும்.
+மன்னர் விரும்புகின்றவைகளைத் தமக்கு வேண்டுமெனத் தாமும் விரும்பாமலிருத்தால் அவர்க்கு அந்த மன்னர் வாயிலாக நிலையான ஆக்கத்தை அளிக்கும்.
 
 **Meaning (English):**  
-To give money and purchase unconsciousness is the result of one’s ignorance of (one’s own actions).
+For ministers not to cover the things desired by their kings will through the kings themselves yield them everlasting wealth.
 
 
 ## 

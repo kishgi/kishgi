@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மன்னர் விழைப விழையாமை மன்னரால்**  
-> **மன்னிய ஆக்கந் தரும்.**" — *குறள் 692*
+> "**வகுத்தான் வகுத்த வகையல்லால் கோடி**  
+> **தொகுத்தார்க்கு துய்த்தல் அரிது.**" — *குறள் 377*
 
 </div>
 
 **பொருள்:**  
-மன்னர் விரும்புகின்றவைகளைத் தமக்கு வேண்டுமெனத் தாமும் விரும்பாமலிருத்தால் அவர்க்கு அந்த மன்னர் வாயிலாக நிலையான ஆக்கத்தை அளிக்கும்.
+வகுத்து முறைப்படுத்திய வாழ்க்கை நெறியை ஒட்டி நடக்கா விட்டால் கோடிப் பொருள் குவித்தாலும், அதன் பயனை அனுபவிப்பது என்பது அரிதேயாகும்.
 
 **Meaning (English):**  
-For ministers not to cover the things desired by their kings will through the kings themselves yield them everlasting wealth.
+Even those who gather together millions will only enjoy them, as it has been determined by the disposer (of all things).
 
 
 ## 

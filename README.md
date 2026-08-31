@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வகுத்தான் வகுத்த வகையல்லால் கோடி**  
-> **தொகுத்தார்க்கு துய்த்தல் அரிது.**" — *குறள் 377*
+> "**நாணும் மறந்தேன் அவர்மறக் கல்லாஎன்**  
+> **மாணா மடநெஞ்சிற் பட்டு.**" — *குறள் 1297*
 
 </div>
 
 **பொருள்:**  
-வகுத்து முறைப்படுத்திய வாழ்க்கை நெறியை ஒட்டி நடக்கா விட்டால் கோடிப் பொருள் குவித்தாலும், அதன் பயனை அனுபவிப்பது என்பது அரிதேயாகும்.
+அவரை மறக்க முடியாமல் வாடும் என்னுடைய சிறப்பில்லாத மட நெஞ்சத்துடன் சேர்ந்து மறக்கக் கூடாது நாணத்தையும் மறந்து விட்டேன்.
 
 **Meaning (English):**  
-Even those who gather together millions will only enjoy them, as it has been determined by the disposer (of all things).
+I have even forgotten my modesty, having been caught in my foolish mind which is not dignified enough to forget him.
 
 
 ## 

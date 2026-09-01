@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நாணும் மறந்தேன் அவர்மறக் கல்லாஎன்**  
-> **மாணா மடநெஞ்சிற் பட்டு.**" — *குறள் 1297*
+> "**ஒழுக்கமும் வாய்மையும் நாணும் இம் மூன்றும்**  
+> **இழுக்கார் குடிப்பிறந் தார்.**" — *குறள் 952*
 
 </div>
 
 **பொருள்:**  
-அவரை மறக்க முடியாமல் வாடும் என்னுடைய சிறப்பில்லாத மட நெஞ்சத்துடன் சேர்ந்து மறக்கக் கூடாது நாணத்தையும் மறந்து விட்டேன்.
+ஒழுக்கம், வாய்மை, மானம் ஆகிய இந்த மூன்றிலும் நிலைதவறி நடக்காதவர்களே உயர்ந்த குடியில் பிறந்தவர்களாகக் கருதப்படுவார்கள்.
 
 **Meaning (English):**  
-I have even forgotten my modesty, having been caught in my foolish mind which is not dignified enough to forget him.
+The high-born will never deviate from these three; good manners, truthfulness and modesty.
 
 
 ## 

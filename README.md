@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறனிழுக்கா தல்லவை நீக்கி மறனிழுக்கா**  
-> **மானம் உடைய தரசு.**" — *குறள் 384*
+> "**முகநக நட்பது நட்பன்று நெஞ்சத்து**  
+> **அகநக நட்பது நட்பு.**" — *குறள் 786*
 
 </div>
 
 **பொருள்:**  
-அறநெறி தவறாமலும், குற்றமேதும் இழைக்காமலும், வீரத்துடனும், மானத்துடனும் ஆட்சி நடத்துபவர்களே சிறந்தவர்களாவார்கள்.
+இன்முகம் காட்டுவது மட்டும் நட்புக்கு அடையாளமல்ல; இதயமார நேசிப்பதே உண்மையான நட்பாகும்.
 
 **Meaning (English):**  
-He is a king who, with manly modesty, swerves not from virtue, and refrains from vice.
+The love that dwells (merely in the smiles of the face is not friendship; (but) that which dwells deep in the smiles of the heart is true friendship.
 
 
 ## 

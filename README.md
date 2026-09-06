@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**முகநக நட்பது நட்பன்று நெஞ்சத்து**  
-> **அகநக நட்பது நட்பு.**" — *குறள் 786*
+> "**பேணாது பெட்டார் உளர்மன்னோ மற்றவர்க்**  
+> **காணாது அமைவில கண்.**" — *குறள் 1178*
 
 </div>
 
 **பொருள்:**  
-இன்முகம் காட்டுவது மட்டும் நட்புக்கு அடையாளமல்ல; இதயமார நேசிப்பதே உண்மையான நட்பாகும்.
+என்னை அரவணைக்கும் எண்ணமின்றிக் காதலித்த ஒருவர் இருக்கின்றனர்; அவரைக் காணாமல் என் கண்களுக்கு அமைதியில்லையே!.
 
 **Meaning (English):**  
-The love that dwells (merely in the smiles of the face is not friendship; (but) that which dwells deep in the smiles of the heart is true friendship.
+He is indeed here who loved me with his lips but not with his heart but mine eyes sufer from not seeing him.
 
 
 ## 

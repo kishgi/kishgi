@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பேணாது பெட்டார் உளர்மன்னோ மற்றவர்க்**  
-> **காணாது அமைவில கண்.**" — *குறள் 1178*
+> "**ஊடல் உணர்தல் புணர்தல் இவைகாமம்**  
+> **கூடியார் பெற்ற பயன்.**" — *குறள் 1109*
 
 </div>
 
 **பொருள்:**  
-என்னை அரவணைக்கும் எண்ணமின்றிக் காதலித்த ஒருவர் இருக்கின்றனர்; அவரைக் காணாமல் என் கண்களுக்கு அமைதியில்லையே!.
+ஊடல் கொள்வதும், அதனால் விளையும் இன்பம் போதுமென உணர்ந்து அதற்கும் மேலான இன்பம் காணப் புணர்ந்து மயங்குவதும் காதல் வாழ்வினர் பெற்றிடும் பயன்களாகும்.
 
 **Meaning (English):**  
-He is indeed here who loved me with his lips but not with his heart but mine eyes sufer from not seeing him.
+Love quarrel, reconciliation and intercourse - these are the advantages reaped by those who marry for lust.
 
 
 ## 

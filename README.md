@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஊடல் உணர்தல் புணர்தல் இவைகாமம்**  
-> **கூடியார் பெற்ற பயன்.**" — *குறள் 1109*
+> "**நுண்ணிய நூல்பல கற்பினும் மற்றுந்தன்**  
+> **உண்மை யறிவே மிகும்.**" — *குறள் 373*
 
 </div>
 
 **பொருள்:**  
-ஊடல் கொள்வதும், அதனால் விளையும் இன்பம் போதுமென உணர்ந்து அதற்கும் மேலான இன்பம் காணப் புணர்ந்து மயங்குவதும் காதல் வாழ்வினர் பெற்றிடும் பயன்களாகும்.
+கூரிய அறிவு வழங்கக் கூடிய நூல்களை ஒருவர் கற்றிருந்த போதிலும் அவரது இயற்கை அறிவே மேலோங்கி நிற்கும்.
 
 **Meaning (English):**  
-Love quarrel, reconciliation and intercourse - these are the advantages reaped by those who marry for lust.
+Although (a man) may study the most polished treatises, the knowledge which fate has decreed to him will still prevail.
 
 
 ## 

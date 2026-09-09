@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நுண்ணிய நூல்பல கற்பினும் மற்றுந்தன்**  
-> **உண்மை யறிவே மிகும்.**" — *குறள் 373*
+> "**முகத்தின் இனிய நகாஅ அகத்தின்னா**  
+> **வஞ்சரை அஞ்சப் படும்.**" — *குறள் 824*
 
 </div>
 
 **பொருள்:**  
-கூரிய அறிவு வழங்கக் கூடிய நூல்களை ஒருவர் கற்றிருந்த போதிலும் அவரது இயற்கை அறிவே மேலோங்கி நிற்கும்.
+சிரித்துப் பேசி நம்மைச் சீரழிக்க நினைக்கும் வஞ்சகரின் நட்புக்கு அஞ்சி ஒதுங்கிட வேண்டும்.
 
 **Meaning (English):**  
-Although (a man) may study the most polished treatises, the knowledge which fate has decreed to him will still prevail.
+One should fear the deceitful who smile sweetly with their face but never love with their heart.
 
 
 ## 

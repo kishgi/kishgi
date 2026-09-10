@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**முகத்தின் இனிய நகாஅ அகத்தின்னா**  
-> **வஞ்சரை அஞ்சப் படும்.**" — *குறள் 824*
+> "**உறுதோறு உயிர்தளிர்ப்பத் தீண்டலால் பேதைக்கு**  
+> **அமிழ்தின் இயன்றன தோள்.**" — *குறள் 1106*
 
 </div>
 
 **பொருள்:**  
-சிரித்துப் பேசி நம்மைச் சீரழிக்க நினைக்கும் வஞ்சகரின் நட்புக்கு அஞ்சி ஒதுங்கிட வேண்டும்.
+இந்த இளமங்கையைத் தழுவும் போதெல்லாம் நான் புத்துயிர் பெறுவதற்கு இவளின் அழகிய தோள்கள் அமிழ்தத்தினால் ஆனவை என்பதுதான் காரணம் போலும்.
 
 **Meaning (English):**  
-One should fear the deceitful who smile sweetly with their face but never love with their heart.
+The shoulders of this fair one are made of ambrosia, for they revive me with pleasure every time I embrace them.
 
 
 ## 

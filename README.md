@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உறுதோறு உயிர்தளிர்ப்பத் தீண்டலால் பேதைக்கு**  
-> **அமிழ்தின் இயன்றன தோள்.**" — *குறள் 1106*
+> "**கழாஅக்கால் பள்ளியுள் வைத்தற்றால் சான்றோர்**  
+> **குழாஅத்துப் பேதை புகல்.**" — *குறள் 840*
 
 </div>
 
 **பொருள்:**  
-இந்த இளமங்கையைத் தழுவும் போதெல்லாம் நான் புத்துயிர் பெறுவதற்கு இவளின் அழகிய தோள்கள் அமிழ்தத்தினால் ஆனவை என்பதுதான் காரணம் போலும்.
+அறிஞர்கள் கூடியுள்ள மன்றத்தில் ஒரு முட்டாள் நுழைவது என்பது, அசுத்தத்தை மிதித்த காலைக் கழுவாமலே படுக்கையில் வைப்பதைப் போன்றது.
 
 **Meaning (English):**  
-The shoulders of this fair one are made of ambrosia, for they revive me with pleasure every time I embrace them.
+The appearance of a fool in an assembly of the learned is like placing (one’s) unwashed feet on a bed.
 
 
 ## 

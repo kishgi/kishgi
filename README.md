@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கழாஅக்கால் பள்ளியுள் வைத்தற்றால் சான்றோர்**  
-> **குழாஅத்துப் பேதை புகல்.**" — *குறள் 840*
+> "**மனநலம் மன்னுயிர்க் காக்கம் இனநலம்**  
+> **எல்லாப் புகழும் தரும்.**" — *குறள் 457*
 
 </div>
 
 **பொருள்:**  
-அறிஞர்கள் கூடியுள்ள மன்றத்தில் ஒரு முட்டாள் நுழைவது என்பது, அசுத்தத்தை மிதித்த காலைக் கழுவாமலே படுக்கையில் வைப்பதைப் போன்றது.
+மனத்தின் நலம் உயிருக்கு ஆக்கமாக விளங்கும் இனத்தின் நலமோ எல்லாப் புகழையும் வழங்கும்.
 
 **Meaning (English):**  
-The appearance of a fool in an assembly of the learned is like placing (one’s) unwashed feet on a bed.
+Goodness of mind will give wealth, and good society will bring with it all praise, to men.
 
 
 ## 

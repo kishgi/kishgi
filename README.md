@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மனநலம் மன்னுயிர்க் காக்கம் இனநலம்**  
-> **எல்லாப் புகழும் தரும்.**" — *குறள் 457*
+> "**கூழுங் குடியும் ஒருங்கிழக்கும் கோல்கோடிச்**  
+> **சூழாது செய்யும் அரசு.**" — *குறள் 554*
 
 </div>
 
 **பொருள்:**  
-மனத்தின் நலம் உயிருக்கு ஆக்கமாக விளங்கும் இனத்தின் நலமோ எல்லாப் புகழையும் வழங்கும்.
+நாட்டுநிலை ஆராயாமல் கொடுங்கோல் புரியும் அரசு, நிதி ஆதாரத்தையும் மக்களின் மதிப்பையும் இழந்துவிடும்.
 
 **Meaning (English):**  
-Goodness of mind will give wealth, and good society will bring with it all praise, to men.
+The king, who, without reflecting (on its evil consequences), perverts justice, will lose at once both his wealth and his subjects.
 
 
 ## 

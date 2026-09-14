@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கூழுங் குடியும் ஒருங்கிழக்கும் கோல்கோடிச்**  
-> **சூழாது செய்யும் அரசு.**" — *குறள் 554*
+> "**உறுபசியும் ஓவாப் பிணியும் செறுபகையும்**  
+> **சேரா தியல்வது நாடு.**" — *குறள் 734*
 
 </div>
 
 **பொருள்:**  
-நாட்டுநிலை ஆராயாமல் கொடுங்கோல் புரியும் அரசு, நிதி ஆதாரத்தையும் மக்களின் மதிப்பையும் இழந்துவிடும்.
+பசியும், பிணியும், பகையுமற்ற நாடுதான் சிறந்த நாடு எனப் பாராட்டப்படும்.
 
 **Meaning (English):**  
-The king, who, without reflecting (on its evil consequences), perverts justice, will lose at once both his wealth and his subjects.
+A kingdom is that which continues to be free from excessive starvation, irremediable epidemics, and destructive foes.
 
 
 ## 

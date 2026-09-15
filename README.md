@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உறுபசியும் ஓவாப் பிணியும் செறுபகையும்**  
-> **சேரா தியல்வது நாடு.**" — *குறள் 734*
+> "**தன்னுயிர் நீப்பினும் செய்யற்க தான்பிறிது**  
+> **இன்னுயிர் நீக்கும் வினை.**" — *குறள் 327*
 
 </div>
 
 **பொருள்:**  
-பசியும், பிணியும், பகையுமற்ற நாடுதான் சிறந்த நாடு எனப் பாராட்டப்படும்.
+தன்னுயிரே போவதாக இருப்பினும்கூட அதற்காக இன்னொரு உயிரைப் போக்கும் செயலில் ஈடுபடக்கூடாது.
 
 **Meaning (English):**  
-A kingdom is that which continues to be free from excessive starvation, irremediable epidemics, and destructive foes.
+Let no one do that which would destroy the life of another, although he should by so doing, lose his own life.
 
 
 ## 

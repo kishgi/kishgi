@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தன்னுயிர் நீப்பினும் செய்யற்க தான்பிறிது**  
-> **இன்னுயிர் நீக்கும் வினை.**" — *குறள் 327*
+> "**உறாஅர்க்கு உறுநோய் உரைப்பாய் கடலைச்**  
+> **செறாஅஅய் வாழிய நெஞ்சு.**" — *குறள் 1200*
 
 </div>
 
 **பொருள்:**  
-தன்னுயிரே போவதாக இருப்பினும்கூட அதற்காக இன்னொரு உயிரைப் போக்கும் செயலில் ஈடுபடக்கூடாது.
+நெஞ்சமே! நீ வாழ்க! உன்னிடம் அன்பு இல்லாதவரிடம் உனது துன்பத்தைச் சொல்லி ஆறுதல் பெறுவதைக் காட்டிலும் கடலைத் தூர்ப்பது எளிதான வேலையாகும்.
 
 **Meaning (English):**  
-Let no one do that which would destroy the life of another, although he should by so doing, lose his own life.
+Live, O my soul, would you who relate your great to strangers, try rather to fill up your own sorrow sea (of sorrow).
 
 
 ## 

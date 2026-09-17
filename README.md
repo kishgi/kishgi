@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உறாஅர்க்கு உறுநோய் உரைப்பாய் கடலைச்**  
-> **செறாஅஅய் வாழிய நெஞ்சு.**" — *குறள் 1200*
+> "**அவிசொரிந் தாயிரம் வேட்டலின் ஒன்றன்**  
+> **உயிர்செகுத் துண்ணாமை நன்று.**" — *குறள் 259*
 
 </div>
 
 **பொருள்:**  
-நெஞ்சமே! நீ வாழ்க! உன்னிடம் அன்பு இல்லாதவரிடம் உனது துன்பத்தைச் சொல்லி ஆறுதல் பெறுவதைக் காட்டிலும் கடலைத் தூர்ப்பது எளிதான வேலையாகும்.
+நெய் போன்ற பொருள்களைத் தீயிலிட்டு ஆயிரம் வேள்விகளை நடத்துவதைவிட உண்பதற்காக ஓர் உயிரைப் போக்காமலிருப்பது நல்லது.
 
 **Meaning (English):**  
-Live, O my soul, would you who relate your great to strangers, try rather to fill up your own sorrow sea (of sorrow).
+Not to kill and eat (the flesh of) an animal, is better than the pouring forth of ghee etc., in a thousand sacrifices.
 
 
 ## 

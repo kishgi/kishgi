@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அவிசொரிந் தாயிரம் வேட்டலின் ஒன்றன்**  
-> **உயிர்செகுத் துண்ணாமை நன்று.**" — *குறள் 259*
+> "**உழைப்பிரிந்து காரணத்தின் வந்தானை வேந்தன்**  
+> **இழைத் திருந்து எண்ணிக் கொளல்.**" — *குறள் 530*
 
 </div>
 
 **பொருள்:**  
-நெய் போன்ற பொருள்களைத் தீயிலிட்டு ஆயிரம் வேள்விகளை நடத்துவதைவிட உண்பதற்காக ஓர் உயிரைப் போக்காமலிருப்பது நல்லது.
+ஏதோ காரணம் கற்பித்துப் பிரிந்து போய், மீண்டும் தலைவனிடம் தக்க காரணத்தினால் வந்தவரை, நன்கு ஆராய்ந்து ஏற்றுக் கொள்ளல் வேண்டும்.
 
 **Meaning (English):**  
-Not to kill and eat (the flesh of) an animal, is better than the pouring forth of ghee etc., in a thousand sacrifices.
+When one may have left him, and for some cause has returned to him, let the king fulfil the object (for which he has come back) and thoughtfully receive him again.
 
 
 ## 

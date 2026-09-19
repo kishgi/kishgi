@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உழைப்பிரிந்து காரணத்தின் வந்தானை வேந்தன்**  
-> **இழைத் திருந்து எண்ணிக் கொளல்.**" — *குறள் 530*
+> "**மேலிருந்தும் மேலல்லார் மேலல்லர் கீழிருந்தும்**  
+> **கீழல்லார் கீழல் லவர்.**" — *குறள் 973*
 
 </div>
 
 **பொருள்:**  
-ஏதோ காரணம் கற்பித்துப் பிரிந்து போய், மீண்டும் தலைவனிடம் தக்க காரணத்தினால் வந்தவரை, நன்கு ஆராய்ந்து ஏற்றுக் கொள்ளல் வேண்டும்.
+பண்பு இல்லாதவர்கள் உயர்ந்த பதவியில் இருந்தாலும் உயர்ந்தோர் அல்லர்; இழிவான காரியங்களில் ஈ.டுபடாதவர்கள் தாழ்ந்த நிலையில் இருந்தாலும் உயர்ந்தோரேயாவார்கள்.
 
 **Meaning (English):**  
-When one may have left him, and for some cause has returned to him, let the king fulfil the object (for which he has come back) and thoughtfully receive him again.
+Though (raised) above, the base cannot become great; though (brought) low,the great cannot become base.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அறன்நோக்கி ஆற்றுங்கொல் வையம் புறன்நோக்கிப்**  
-> **புன்சொல் உரைப்பான் பொறை.**" — *குறள் 189*
+> "**கரப்பவர்க்கு யாங்கொளிக்கும் கொல்லோ இரப்பவர்**  
+> **சொல்லாடப் போஒம் உயிர்.**" — *குறள் 1070*
 
 </div>
 
 **பொருள்:**  
-ஒருவர் நேரில் இல்லாதபோது பழிச்சொல் கூறுவோனுடைய உடலை இவனைச் சுமப்பதும் அறமே என்று கருதித்தான் நிலம் சுமக்கிறது.
+இருப்பதை ஒளித்துக்கொண்டு இல்லை என்பவர்களின் சொல்லைக் கேட்டவுடன், இரப்போரின் உயிரே போய் விடுகிறதே; அப்படிச் சொல்பவர்களின் உயிர் மட்டும் எங்கே ஒளிந்துகொண்டு இருக்குமோ?.
 
 **Meaning (English):**  
-The world through charity supports the weight of those who reproach others observing their absence.
+Saying 'No' to a beggar takes away his life. (but as that very word will kill the refuser) where then would the latter’s life hide itself ?
 
 
 ## 

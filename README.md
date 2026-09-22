@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கரப்பவர்க்கு யாங்கொளிக்கும் கொல்லோ இரப்பவர்**  
-> **சொல்லாடப் போஒம் உயிர்.**" — *குறள் 1070*
+> "**உறாஅர்க்கு உறுநோய் உரைப்பாய் கடலைச்**  
+> **செறாஅஅய் வாழிய நெஞ்சு.**" — *குறள் 1200*
 
 </div>
 
 **பொருள்:**  
-இருப்பதை ஒளித்துக்கொண்டு இல்லை என்பவர்களின் சொல்லைக் கேட்டவுடன், இரப்போரின் உயிரே போய் விடுகிறதே; அப்படிச் சொல்பவர்களின் உயிர் மட்டும் எங்கே ஒளிந்துகொண்டு இருக்குமோ?.
+நெஞ்சமே! நீ வாழ்க! உன்னிடம் அன்பு இல்லாதவரிடம் உனது துன்பத்தைச் சொல்லி ஆறுதல் பெறுவதைக் காட்டிலும் கடலைத் தூர்ப்பது எளிதான வேலையாகும்.
 
 **Meaning (English):**  
-Saying 'No' to a beggar takes away his life. (but as that very word will kill the refuser) where then would the latter’s life hide itself ?
+Live, O my soul, would you who relate your great to strangers, try rather to fill up your own sorrow sea (of sorrow).
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உறாஅர்க்கு உறுநோய் உரைப்பாய் கடலைச்**  
-> **செறாஅஅய் வாழிய நெஞ்சு.**" — *குறள் 1200*
+> "**தணந்தமை சால அறிவிப்ப போலும்**  
+> **மணந்தநாள் வீங்கிய தோள்.**" — *குறள் 1233*
 
 </div>
 
 **பொருள்:**  
-நெஞ்சமே! நீ வாழ்க! உன்னிடம் அன்பு இல்லாதவரிடம் உனது துன்பத்தைச் சொல்லி ஆறுதல் பெறுவதைக் காட்டிலும் கடலைத் தூர்ப்பது எளிதான வேலையாகும்.
+தழுவிக் கிடந்த போது பூரித்திருந்த தோள், இப்போது மெலிந்து காணப்படுவது; காதலன் பிரிவை அறிவிப்பதற்காகத்தான் போலும்.
 
 **Meaning (English):**  
-Live, O my soul, would you who relate your great to strangers, try rather to fill up your own sorrow sea (of sorrow).
+The shoulders that swelled on the day of our union (now) seem to announce our separation clearly (to the public).
 
 
 ## 

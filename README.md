@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தணந்தமை சால அறிவிப்ப போலும்**  
-> **மணந்தநாள் வீங்கிய தோள்.**" — *குறள் 1233*
+> "**காமக் கடல்மன்னும் உண்டே அதுநீந்தும்**  
+> **ஏமப் புணைமன்னும் இல்.**" — *குறள் 1164*
 
 </div>
 
 **பொருள்:**  
-தழுவிக் கிடந்த போது பூரித்திருந்த தோள், இப்போது மெலிந்து காணப்படுவது; காதலன் பிரிவை அறிவிப்பதற்காகத்தான் போலும்.
+காதல் கடல்போலச் சூழ்ந்துகொண்டு வருத்துகிறது. ஆனால் அதை நீந்திக் கடந்து செல்லப் பாதுகாப்பான தோணிதான் இல்லை.
 
 **Meaning (English):**  
-The shoulders that swelled on the day of our union (now) seem to announce our separation clearly (to the public).
+There is indeed a flood of lust; but there is no raft of safety to cross it with.
 
 
 ## 

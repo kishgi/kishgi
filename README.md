@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கோளில் பொறியின் குணமிலவே எண்குணத்தான்**  
-> **தாளை வணங்காத் தலை.**" — *குறள் 9*
+> "**தீயள வன்றித் தெரியான் பெரிதுண்ணின்**  
+> **நோயள வின்றிப் படும்.**" — *குறள் 947*
 
 </div>
 
 **பொருள்:**  
-உடல், கண், காது, மூக்கு, வாய் எனும் ஐம்பொறிகள் இருந்தும், அவைகள் இயங்காவிட்டால் என்ன நிலையோ அதே நிலைதான் ஈடற்ற ஆற்றலும் பண்பும் கொண்டவனை வணங்கி நடக்காதவனின் நிலையும் ஆகும்.
+பசியின் அளவு அறியாமலும், ஆராயாமலும் அதிகம் உண்டால் நோய்களும் அளவின்றி வரும்.
 
 **Meaning (English):**  
-The head that doesn’t bow to God, is similar to the organs that don’t have the right senses.
+He will be aflicted with numberless diseases, who eats immoderately, ignorant (of the rules of health).
 
 
 ## 

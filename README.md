@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தீயள வன்றித் தெரியான் பெரிதுண்ணின்**  
-> **நோயள வின்றிப் படும்.**" — *குறள் 947*
+> "**பயனில பல்லார்முன் சொல்லல் நயனில**  
+> **நட்டார்கண் செய்தலிற் றீது.**" — *குறள் 192*
 
 </div>
 
 **பொருள்:**  
-பசியின் அளவு அறியாமலும், ஆராயாமலும் அதிகம் உண்டால் நோய்களும் அளவின்றி வரும்.
+பலர்முன் பயனில்லாத சொற்களைக் கூறுவது, நட்புக்கு மாறாகச் செயல்படுவதைக் காட்டிலும் தீமையுடையதாகும்.
 
 **Meaning (English):**  
-He will be aflicted with numberless diseases, who eats immoderately, ignorant (of the rules of health).
+To speak useless things in the presence of many is a greater evil than to do unkind things towards friends.
 
 
 ## 

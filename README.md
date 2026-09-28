@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பயனில பல்லார்முன் சொல்லல் நயனில**  
-> **நட்டார்கண் செய்தலிற் றீது.**" — *குறள் 192*
+> "**நல்லாற்றாள் நாடி அருளாள்க பல்லாற்றால்**  
+> **தேரினும் அஃதே துணை.**" — *குறள் 242*
 
 </div>
 
 **பொருள்:**  
-பலர்முன் பயனில்லாத சொற்களைக் கூறுவது, நட்புக்கு மாறாகச் செயல்படுவதைக் காட்டிலும் தீமையுடையதாகும்.
+பலவழிகளால் ஆராய்ந்து கண்டாலும் அருள் உடைமையே வாழ்க்கைக்குத் துணையாய் விளங்கும் நல்வழி எனக் கொள்ளல் வேண்டும்.
 
 **Meaning (English):**  
-To speak useless things in the presence of many is a greater evil than to do unkind things towards friends.
+Stand) in the good path, consider, and be kind. Even considering according to the conflicting tenets of the different sects, kindness will be your best aid, (in the acquisition of heavenly bliss.)
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நல்லாற்றாள் நாடி அருளாள்க பல்லாற்றால்**  
-> **தேரினும் அஃதே துணை.**" — *குறள் 242*
+> "**செவியுணவிற் கேள்வி யுடையார் அவியுணவின்**  
+> **ஆன்றாரோ டொப்பர் நிலத்து.**" — *குறள் 413*
 
 </div>
 
 **பொருள்:**  
-பலவழிகளால் ஆராய்ந்து கண்டாலும் அருள் உடைமையே வாழ்க்கைக்குத் துணையாய் விளங்கும் நல்வழி எனக் கொள்ளல் வேண்டும்.
+குறைந்த உணவருந்தி நிறைந்த அறிவுடன் விளங்கும் ஆன்றோர்க்கு ஒப்பாகக் கேள்வி ஞானம் எனும் செவியுணவு அருந்துவோர் எண்ணப்படுவர்.
 
 **Meaning (English):**  
-Stand) in the good path, consider, and be kind. Even considering according to the conflicting tenets of the different sects, kindness will be your best aid, (in the acquisition of heavenly bliss.)
+Those who in this world enjoy instruction which is the food of the ear, are equal to the Gods, who enjoy the food of the sacrifices.
 
 
 ## 

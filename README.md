@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**செவியுணவிற் கேள்வி யுடையார் அவியுணவின்**  
-> **ஆன்றாரோ டொப்பர் நிலத்து.**" — *குறள் 413*
+> "**அமிழ்தினும் ஆற்ற இனிதேதம் மக்கள்**  
+> **சிறுகை அளாவிய கூழ்.**" — *குறள் 64*
 
 </div>
 
 **பொருள்:**  
-குறைந்த உணவருந்தி நிறைந்த அறிவுடன் விளங்கும் ஆன்றோர்க்கு ஒப்பாகக் கேள்வி ஞானம் எனும் செவியுணவு அருந்துவோர் எண்ணப்படுவர்.
+சிறந்த பொருளை அமிழ்தம் எனக் குறிப்பிட்டாலுங்கூடத் தம்முடைய குழந்தைகளின் பிஞ்சுக்கரத்தால் அளாவப்பட்ட கூழ் அந்த அமிழ்தத்தைவிடச் சுவையானதாகிவிடுகிறது.
 
 **Meaning (English):**  
-Those who in this world enjoy instruction which is the food of the ear, are equal to the Gods, who enjoy the food of the sacrifices.
+The rice in which the little hand of their children has dabbled will be far sweeter (to the parent) than ambrosia.
 
 
 ## 

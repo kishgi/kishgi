@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அமிழ்தினும் ஆற்ற இனிதேதம் மக்கள்**  
-> **சிறுகை அளாவிய கூழ்.**" — *குறள் 64*
+> "**மண்ணோ டியைந்த மரத்தனையர் கண்ணோ**  
+> **டியைந்துகண் ணோடா தவர்.**" — *குறள் 576*
 
 </div>
 
 **பொருள்:**  
-சிறந்த பொருளை அமிழ்தம் எனக் குறிப்பிட்டாலுங்கூடத் தம்முடைய குழந்தைகளின் பிஞ்சுக்கரத்தால் அளாவப்பட்ட கூழ் அந்த அமிழ்தத்தைவிடச் சுவையானதாகிவிடுகிறது.
+ஒருவர்க்குக் கண் இருந்தும்கூட அந்தக் கண்ணுக்குரிய அன்பும் இரக்கமும் இல்லாவிட்டால் அவர் மரத்துக்கு ஒப்பானவரே ஆவார்.
 
 **Meaning (English):**  
-The rice in which the little hand of their children has dabbled will be far sweeter (to the parent) than ambrosia.
+They resemble the trees of the earth, who although they have eyes, never look kindly (on others).
 
 
 ## 

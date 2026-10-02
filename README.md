@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மண்ணோ டியைந்த மரத்தனையர் கண்ணோ**  
-> **டியைந்துகண் ணோடா தவர்.**" — *குறள் 576*
+> "**சூழாமல் தானே முடிவெய்தும் தம்குடியைத்**  
+> **தாழாது உஞற்று பவர்க்கு.**" — *குறள் 1024*
 
 </div>
 
 **பொருள்:**  
-ஒருவர்க்குக் கண் இருந்தும்கூட அந்தக் கண்ணுக்குரிய அன்பும் இரக்கமும் இல்லாவிட்டால் அவர் மரத்துக்கு ஒப்பானவரே ஆவார்.
+தம்மைச் சார்ந்த குடிகளை உயர்த்தும் செயல்களில் காலம் தாழ்த்தாமல் ஈடுபட்டு முயலுகிறவர்களுக்குத் தாமாகவே வெற்றிகள் வந்து குவிந்துவிடும்.
 
 **Meaning (English):**  
-They resemble the trees of the earth, who although they have eyes, never look kindly (on others).
+Those who are prompt in their eforts (to better their family) need no deliberation, such eforts will of themselves succeed.
 
 
 ## 

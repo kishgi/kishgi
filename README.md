@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சூழாமல் தானே முடிவெய்தும் தம்குடியைத்**  
-> **தாழாது உஞற்று பவர்க்கு.**" — *குறள் 1024*
+> "**மருந்தென வேண்டாவாம் யாக்கைக்கு அருந்தியது**  
+> **அற்றது போற்றி உணின்.**" — *குறள் 942*
 
 </div>
 
 **பொருள்:**  
-தம்மைச் சார்ந்த குடிகளை உயர்த்தும் செயல்களில் காலம் தாழ்த்தாமல் ஈடுபட்டு முயலுகிறவர்களுக்குத் தாமாகவே வெற்றிகள் வந்து குவிந்துவிடும்.
+உண்ட உணவு செரிப்பதற்கான கால இடைவெளி தந்து, உணவு அருந்துகிறவர்களின் உடலுக்கு வேறு மருந்தே தேவையில்லை.
 
 **Meaning (English):**  
-Those who are prompt in their eforts (to better their family) need no deliberation, such eforts will of themselves succeed.
+No medicine is necessary for him who eats after assuring (himself) that what he has (already) eaten has been digested.
 
 
 ## 

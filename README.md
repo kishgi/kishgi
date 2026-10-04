@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**மருந்தென வேண்டாவாம் யாக்கைக்கு அருந்தியது**  
-> **அற்றது போற்றி உணின்.**" — *குறள் 942*
+> "**நன்றாற்ற லுள்ளுந் தவுறுண்டு அவரவர்**  
+> **பண்பறிந் தாற்றாக் கடை.**" — *குறள் 469*
 
 </div>
 
 **பொருள்:**  
-உண்ட உணவு செரிப்பதற்கான கால இடைவெளி தந்து, உணவு அருந்துகிறவர்களின் உடலுக்கு வேறு மருந்தே தேவையில்லை.
+ஒருவருடைய இயல்பைப் புரிந்து கொண்டுதான் நன்மையைக் கூடச் செய்ய வேண்டும். இல்லாவிட்டால் அதுவே தீமையாகத் திருப்பித் தாக்கும்.
 
 **Meaning (English):**  
-No medicine is necessary for him who eats after assuring (himself) that what he has (already) eaten has been digested.
+There are failures even in acting well, when it is done without knowing the various dispositions of men
 
 
 ## 

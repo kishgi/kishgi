@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நன்றாற்ற லுள்ளுந் தவுறுண்டு அவரவர்**  
-> **பண்பறிந் தாற்றாக் கடை.**" — *குறள் 469*
+> "**நிலத்தியல்பால் நீர்திரிந் தற்றாகும் மாந்தர்க்கு**  
+> **இனத்தியல்ப தாகும் அறிவு.**" — *குறள் 452*
 
 </div>
 
 **பொருள்:**  
-ஒருவருடைய இயல்பைப் புரிந்து கொண்டுதான் நன்மையைக் கூடச் செய்ய வேண்டும். இல்லாவிட்டால் அதுவே தீமையாகத் திருப்பித் தாக்கும்.
+சேர்ந்த நிலத்தின் தன்மையால் நீரானது வேறுபட்டு அந்த நிலத்தின் தன்மையை அடைந்துவிடும் அதுபோல மக்களின் அறிவும், தாங்கள் சேர்ந்த இனத்தின் தன்மையைப் பெற்றதாகிவிடும்.
 
 **Meaning (English):**  
-There are failures even in acting well, when it is done without knowing the various dispositions of men
+As water changes (its nature), from the nature of the soil (in which it flows), so will the character of men resemble that of their associates.
 
 
 ## 

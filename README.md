@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நிலத்தியல்பால் நீர்திரிந் தற்றாகும் மாந்தர்க்கு**  
-> **இனத்தியல்ப தாகும் அறிவு.**" — *குறள் 452*
+> "**சார்புணர்ந்து சார்பு கெடஒழுகின் மற்றழித்துச்**  
+> **சார்தரா சார்தரு நோய்.**" — *குறள் 359*
 
 </div>
 
 **பொருள்:**  
-சேர்ந்த நிலத்தின் தன்மையால் நீரானது வேறுபட்டு அந்த நிலத்தின் தன்மையை அடைந்துவிடும் அதுபோல மக்களின் அறிவும், தாங்கள் சேர்ந்த இனத்தின் தன்மையைப் பெற்றதாகிவிடும்.
+துன்பங்கள் நம்மைச் சாராமல் இருக்க வேண்டுமானால், அத்துன்பங்களுக்குக் காரணமானவற்றை உணர்ந்து அவற்றின் மீதுள்ள பற்றை விலக்கிக் கொள்ள வேண்டும்.
 
 **Meaning (English):**  
-As water changes (its nature), from the nature of the soil (in which it flows), so will the character of men resemble that of their associates.
+He who so lives as to know Him who is the support of all things and abandon all desire, will be freed from the evils which would otherwise cleave to him and destroy (his efforts after absorption.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**சார்புணர்ந்து சார்பு கெடஒழுகின் மற்றழித்துச்**  
-> **சார்தரா சார்தரு நோய்.**" — *குறள் 359*
+> "**யாம்கண்ணின் காண நகுப அறிவில்லார்**  
+> **யாம்பட்ட தாம்படா ஆறு.**" — *குறள் 1140*
 
 </div>
 
 **பொருள்:**  
-துன்பங்கள் நம்மைச் சாராமல் இருக்க வேண்டுமானால், அத்துன்பங்களுக்குக் காரணமானவற்றை உணர்ந்து அவற்றின் மீதுள்ள பற்றை விலக்கிக் கொள்ள வேண்டும்.
+காதல் நோயினால் வாடுவோரின் துன்பத்தை அனுபவித்தறியாதவர்கள்தான், அந்த நோயினால் வருந்துவோரைப் பார்த்து நகைப்பார்கள்.
 
 **Meaning (English):**  
-He who so lives as to know Him who is the support of all things and abandon all desire, will be freed from the evils which would otherwise cleave to him and destroy (his efforts after absorption.
+Even strangers laugh (at us) so as to be seen by us, for they have not suffered.
 
 
 ## 

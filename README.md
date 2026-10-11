@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நல்லாறு எனினும் கொளல்தீது மேலுலகம்**  
-> **இல்லெனினும் ஈதலே நன்று.**" — *குறள் 222*
+> "**பெருமை பெருமிதம் இன்மை சிறுமை**  
+> **பெருமிதம் ஊர்ந்து விடல்.**" — *குறள் 979*
 
 </div>
 
 **பொருள்:**  
-பிறரிடமிருந்து நல்வழியில் பொருளைப் பெற்றாலும் அது பெருமையல்ல; சிறுமையே ஆகும். கொடை வழங்குவதால் மேலுலகம் என்று சொல்லப்படுவது கிட்டிவிடப் போவதில்லை; எனினும் பிறர்க்குக் கொடுத்து வாழ்வதே சிறந்த வாழ்க்கையாகும்.
+ஆணவமின்றி அடக்கமாக இருப்பது பெருமை எனப்படும். ஆணவத்தின் எல்லைக்கே சென்று விடுவது சிறுமை எனப்படும்.
 
 **Meaning (English):**  
-To beg is evil, even though it were said that it is a good path (to heaven). To give is good, even though it were said that those who do so cannot obtain heaven.
+Freedom from conceit is (the nature of true) greatness; (while) obstinacy therein is (that of) meanness.
 
 
 ## 

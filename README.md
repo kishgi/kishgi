@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பெருமை பெருமிதம் இன்மை சிறுமை**  
-> **பெருமிதம் ஊர்ந்து விடல்.**" — *குறள் 979*
+> "**தூங்காமை கல்வி துணிவுடைமை இம்மூன்றும்**  
+> **நீங்கா நிலனான் பவர்க்கு.**" — *குறள் 383*
 
 </div>
 
 **பொருள்:**  
-ஆணவமின்றி அடக்கமாக இருப்பது பெருமை எனப்படும். ஆணவத்தின் எல்லைக்கே சென்று விடுவது சிறுமை எனப்படும்.
+காலம் தாழ்த்தாத விரைவான நடவடிக்கைகளும், அறிவுடைமையும், துணிவும் நாடாளுகின்றவர்களுக்குத் தேவையானவையும், நீங்காமல் நிலைத்திருக்க வேண்டியவையுமான பண்புகளாகும்.
 
 **Meaning (English):**  
-Freedom from conceit is (the nature of true) greatness; (while) obstinacy therein is (that of) meanness.
+These three things, viz., vigilance, learning, and bravery, should never be wanting in the ruler of a country.
 
 
 ## 

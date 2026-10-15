@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உள்ளிய தெல்லாம் உடனெய்தும் உள்ளத்தால்**  
-> **உள்ளான் வெகுளி எனின்.**" — *குறள் 309*
+> "**வழங்குவ துள்வீழ்ந்தக் கண்ணும் பழங்குடி**  
+> **பண்பில் தலைப்பிரிதல் இன்று.**" — *குறள் 955*
 
 </div>
 
 **பொருள்:**  
-உள்ளத்தால் சினங்கொள்ளாதவனாக இருந்தால் எண்ணியவற்றையெல்லாம் உடனடியாகப் பெற முடியும்.
+பழம் பெருமை வாய்ந்த குடியில் பிறந்தவர்கள் வறுமையால் தாக்குண்ட போதிலும், பிறருக்கு வழங்கும் பண்பை இழக்க மாட்டார்கள்.
 
 **Meaning (English):**  
-If a man never indulges anger in his heart, he will at once obtain whatever he has thought of.
+Though their means fall off, those born in ancient families, will not lose their character (for liberality).
 
 
 ## 

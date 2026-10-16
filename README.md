@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வழங்குவ துள்வீழ்ந்தக் கண்ணும் பழங்குடி**  
-> **பண்பில் தலைப்பிரிதல் இன்று.**" — *குறள் 955*
+> "**அணங்குகொல் ஆய்மயில் கொல்லோ கனங்குழை**  
+> **மாதர்கொல் மாலும் என் நெஞ்சு.**" — *குறள் 1081*
 
 </div>
 
 **பொருள்:**  
-பழம் பெருமை வாய்ந்த குடியில் பிறந்தவர்கள் வறுமையால் தாக்குண்ட போதிலும், பிறருக்கு வழங்கும் பண்பை இழக்க மாட்டார்கள்.
+எனை வாட்டும் அழகோ! வண்ண மயிலோ! இந்த மங்கையைக் கண்டு மயங்குகிறதே நெஞ்சம்.
 
 **Meaning (English):**  
-Though their means fall off, those born in ancient families, will not lose their character (for liberality).
+Is this jewelled female a celestial, a choice peahen, or a human being ? My mind is perplexed.
 
 
 ## 

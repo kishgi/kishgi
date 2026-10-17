@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அணங்குகொல் ஆய்மயில் கொல்லோ கனங்குழை**  
-> **மாதர்கொல் மாலும் என் நெஞ்சு.**" — *குறள் 1081*
+> "**ஊடிப் பெறுகுவம் கொல்லோ நுதல்வெயர்ப்பக்**  
+> **கூடலில் தோன்றிய உப்பு.**" — *குறள் 1328*
 
 </div>
 
 **பொருள்:**  
-எனை வாட்டும் அழகோ! வண்ண மயிலோ! இந்த மங்கையைக் கண்டு மயங்குகிறதே நெஞ்சம்.
+நெற்றி வியர்க்கும்படி கலவியில் தோன்றும் சுகத்தை இன்னுமொரு முறை இவளுடன் ஊடிப் பெறுவோமா?.
 
 **Meaning (English):**  
-Is this jewelled female a celestial, a choice peahen, or a human being ? My mind is perplexed.
+Will I enjoy once more through her dislike, the pleasure of that love that makes her forehead perspire?
 
 
 ## 

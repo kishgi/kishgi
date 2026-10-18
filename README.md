@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஊடிப் பெறுகுவம் கொல்லோ நுதல்வெயர்ப்பக்**  
-> **கூடலில் தோன்றிய உப்பு.**" — *குறள் 1328*
+> "**கரப்பிலார் வையகத்து உண்மையால் கண்ணின்று**  
+> **இரப்பவர் மேற்கொள் வது.**" — *குறள் 1055*
 
 </div>
 
 **பொருள்:**  
-நெற்றி வியர்க்கும்படி கலவியில் தோன்றும் சுகத்தை இன்னுமொரு முறை இவளுடன் ஊடிப் பெறுவோமா?.
+உள்ளதை இல்லையென்று மறைக்காமல் வழங்கிடும் பண்புடையோர் உலகில் இருப்பதால்தான் இல்லாதவர்கள், அவர்களிடம் சென்று இரத்தலை மேற்கொண்டுள்ளனர்.
 
 **Meaning (English):**  
-Will I enjoy once more through her dislike, the pleasure of that love that makes her forehead perspire?
+As there are in the world those that give without refusing, there are (also) those that prefer to beg by simply standing before them.
 
 
 ## 

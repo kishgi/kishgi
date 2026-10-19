@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கரப்பிலார் வையகத்து உண்மையால் கண்ணின்று**  
-> **இரப்பவர் மேற்கொள் வது.**" — *குறள் 1055*
+> "**அறிவினுள் எல்லாந் தலையென்ப தீய**  
+> **செறுவார்க்கும் செய்யா விடல்.**" — *குறள் 203*
 
 </div>
 
 **பொருள்:**  
-உள்ளதை இல்லையென்று மறைக்காமல் வழங்கிடும் பண்புடையோர் உலகில் இருப்பதால்தான் இல்லாதவர்கள், அவர்களிடம் சென்று இரத்தலை மேற்கொண்டுள்ளனர்.
+தீமை செய்தவர்க்கு அதையே திருப்பிச் செய்யாமலிருத்தலை, எல்லா அறிவிலும் முதன்மையான அறிவு என்று போற்றுவர்.
 
 **Meaning (English):**  
-As there are in the world those that give without refusing, there are (also) those that prefer to beg by simply standing before them.
+To do no evil to enemies will be called the chi ef of all virtues.
 
 
 ## 

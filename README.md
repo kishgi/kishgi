@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**முகைமொக்குள் உள்ளது நாற்றம்போல் பேதை**  
-> **நகைமொக்குள் உள்ளதொன் றுண்டு.**" — *குறள் 1274*
+> "**உடையார்முன் இல்லார்போல் ஏக்கற்றுங் கற்றார்**  
+> **கடையரே கல்லா தவர்.**" — *குறள் 395*
 
 </div>
 
 **பொருள்:**  
-மலராத அரும்புக்குள் நறுமணம் அடங்கியிருப்பது போலத்தான் ஒரு பெண்ணின் புன்னகையென்ற அரும்புக்குள் அவளது காதலனைப்பற்றிய நினைவும் நிரம்பியிருக்கிறது.
+அறிவுடையார் முன் அறிவில்லாதவர் போல் தாழ்ந்து நின்று, மேலும் கற்றுக்கொள்பவர்களின் ஆர்வத்தைக் கற்றுக் கொள்ளாதவர்கள் கடைநிலை மாந்தராக கருதப்படுவார்கள்.
 
 **Meaning (English):**  
-There is something in the unmatured smile of this maid like the fragrance that is contained in an unblossomed bud.
+The unlearned are inferior to the learned, before whom they stand begging, as the destitute before the wealthy.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உடையார்முன் இல்லார்போல் ஏக்கற்றுங் கற்றார்**  
-> **கடையரே கல்லா தவர்.**" — *குறள் 395*
+> "**இடுக்கண்கால் கொன்றிட வீழும் அடுத்தூன்றும்**  
+> **நல்லாள் இலாத குடி.**" — *குறள் 1030*
 
 </div>
 
 **பொருள்:**  
-அறிவுடையார் முன் அறிவில்லாதவர் போல் தாழ்ந்து நின்று, மேலும் கற்றுக்கொள்பவர்களின் ஆர்வத்தைக் கற்றுக் கொள்ளாதவர்கள் கடைநிலை மாந்தராக கருதப்படுவார்கள்.
+வரும் துன்பத்தை எதிர் நின்று தாங்கக் கூடிய ஆற்றலுடையவர் இல்லாத குடியை அத்துன்பம், வென்று வீழ்த்திவிடும்.
 
 **Meaning (English):**  
-The unlearned are inferior to the learned, before whom they stand begging, as the destitute before the wealthy.
+If there are none to prop up and maintain a family (in distress), it will fall at the stroke of the axe of misfortune.
 
 
 ## 

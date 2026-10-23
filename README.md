@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இடுக்கண்கால் கொன்றிட வீழும் அடுத்தூன்றும்**  
-> **நல்லாள் இலாத குடி.**" — *குறள் 1030*
+> "**இன்னா எனத்தான் உணர்ந்தவை துன்னாமை**  
+> **வேண்டும் பிறன்கண் செயல்.**" — *குறள் 316*
 
 </div>
 
 **பொருள்:**  
-வரும் துன்பத்தை எதிர் நின்று தாங்கக் கூடிய ஆற்றலுடையவர் இல்லாத குடியை அத்துன்பம், வென்று வீழ்த்திவிடும்.
+ஒருவன் தன்னுடைய வாழ்க்கையில் துன்பமானவை என்று அனுபவித்து அறிந்தவற்றை, மற்றவர்க்குச் செய்யாமலிருக்க வேண்டும்.
 
 **Meaning (English):**  
-If there are none to prop up and maintain a family (in distress), it will fall at the stroke of the axe of misfortune.
+Let not a man consent to do those things to another which, he knows, will cause sorrow.
 
 
 ## 

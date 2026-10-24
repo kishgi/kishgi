@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இன்னா எனத்தான் உணர்ந்தவை துன்னாமை**  
-> **வேண்டும் பிறன்கண் செயல்.**" — *குறள் 316*
+> "**அணங்குகொல் ஆய்மயில் கொல்லோ கனங்குழை**  
+> **மாதர்கொல் மாலும் என் நெஞ்சு.**" — *குறள் 1081*
 
 </div>
 
 **பொருள்:**  
-ஒருவன் தன்னுடைய வாழ்க்கையில் துன்பமானவை என்று அனுபவித்து அறிந்தவற்றை, மற்றவர்க்குச் செய்யாமலிருக்க வேண்டும்.
+எனை வாட்டும் அழகோ! வண்ண மயிலோ! இந்த மங்கையைக் கண்டு மயங்குகிறதே நெஞ்சம்.
 
 **Meaning (English):**  
-Let not a man consent to do those things to another which, he knows, will cause sorrow.
+Is this jewelled female a celestial, a choice peahen, or a human being ? My mind is perplexed.
 
 
 ## 

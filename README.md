@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஒன்றானுந் தீச்சொல் பொருட்பயன் உண்டாயின்**  
-> **நன்றாகா தாகி விடும்.**" — *குறள் 128*
+> "**கேட்டார்ப் பிணிக்கும் தகையவாய்க் கேளாரும்**  
+> **வேட்ப மொழிவதாம் சொல்.**" — *குறள் 643*
 
 </div>
 
 **பொருள்:**  
-ஒரு குடம் பாலில் துளி நஞ்சுபோல், பேசும் சொற்களில் ஒரு சொல் தீய சொல்லாக இருந்து துன்பம் விளைவிக்குமானாலும், அந்தப் பேச்சில் உள்ள நல்ல சொற்கள் அனைத்தும் தீயவாகிவிடும்.
+கேட்போரைக் கவரும் தன்மையுடைதாகவும், கேட்காதவரும் தேடிவந்து விரும்பிக் கேட்கக் கூடியதாகவும் அமைவதே சொல்வன்மை எனப்படும்.
 
 **Meaning (English):**  
-If a man’s speech be productive of a single evil, all the good by him will be turned into evil.
+The (minister’s) speech is that which seeks (to express) elements as bind his friends (to himself) and is so delivered as to make even his enemies desire (his friendship).
 
 
 ## 

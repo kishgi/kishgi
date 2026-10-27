@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கேட்டார்ப் பிணிக்கும் தகையவாய்க் கேளாரும்**  
-> **வேட்ப மொழிவதாம் சொல்.**" — *குறள் 643*
+> "**படியுடையார் பற்றமைந்தக் கண்ணும் மடியுடையார்**  
+> **மாண்பயன் எய்தல் அரிது.**" — *குறள் 606*
 
 </div>
 
 **பொருள்:**  
-கேட்போரைக் கவரும் தன்மையுடைதாகவும், கேட்காதவரும் தேடிவந்து விரும்பிக் கேட்கக் கூடியதாகவும் அமைவதே சொல்வன்மை எனப்படும்.
+தகுதியுடையவரின் அன்புக்குப் பாத்திரமானவராக இருப்பினும் சோம்பலுடையவர்கள் பெருமை எனும் பயனை அடைவதென்பது அரிதாகும்.
 
 **Meaning (English):**  
-The (minister’s) speech is that which seeks (to express) elements as bind his friends (to himself) and is so delivered as to make even his enemies desire (his friendship).
+It is a rare thing for the idle, even when possessed of the riches of kings who ruled over the whole earth, to derive any great benefit from it.
 
 
 ## 

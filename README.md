@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**படியுடையார் பற்றமைந்தக் கண்ணும் மடியுடையார்**  
-> **மாண்பயன் எய்தல் அரிது.**" — *குறள் 606*
+> "**எற்றென்று இரங்குவ செய்யற்க செய்வானேல்**  
+> **மற்றன்ன செய்யாமை நன்று.**" — *குறள் 655*
 
 </div>
 
 **பொருள்:**  
-தகுதியுடையவரின் அன்புக்குப் பாத்திரமானவராக இருப்பினும் சோம்பலுடையவர்கள் பெருமை எனும் பயனை அடைவதென்பது அரிதாகும்.
+என்ன தவறு செய்துவிட்டோம் என நினைத்துக் கவலைப்படுவதற்குரிய காரியங்களைச் செய்யக்கூடாது. ஒருகால் அப்படிச் செய்து விட்டாலும் அச்செயலை மீண்டும் தொடராதிருப்பதே நன்று.
 
 **Meaning (English):**  
-It is a rare thing for the idle, even when possessed of the riches of kings who ruled over the whole earth, to derive any great benefit from it.
+‘What have I done?’ – do not do deeds leading to such regret; even if you do, do not ever repeat them.
 
 
 ## 

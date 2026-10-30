@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நாம்காதல் கொண்டார் நமக்கெவன் செய்பவோ**  
-> **தாம்காதல் கொள்ளாக் கடை.**" — *குறள் 1195*
+> "**ஆற்றின் நிலைதளர்ந் தற்றே வியன்புலம்**  
+> **ஏற்றுணர்வார் முன்னர் இழுக்கு.**" — *குறள் 716*
 
 </div>
 
 **பொருள்:**  
-நான் விரும்பிக் காதல் கொள்வது போன்று அவர் என்னை விரும்பிக் காதல் கொள்ளாத நிலையில் அவரால் எனக்கு என்ன இன்பம் கிடைக்கப் போகிறது?.
+அறிவுத்திறனால் பெருமை பெற்றோர் முன்னிலையில் ஆற்றிடும் உரையில் குற்றம் ஏற்படுமானால், அது ஒழுக்க நெறியிலிருந்து தளர்ந்து வீழ்ந்து விட்டதற்கு ஒப்பானதாகும்.
 
 **Meaning (English):**  
-He who is beloved by me, what will he do to me, if I am not beloved by him ?
+(For a minister) to blunder in the presence of those who have acquired a vast store of learning and know (the value thereof) is like a good man stumbling (and falling away) from the path (of virtue).
 
 
 ## 

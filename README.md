@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**ஆற்றின் நிலைதளர்ந் தற்றே வியன்புலம்**  
-> **ஏற்றுணர்வார் முன்னர் இழுக்கு.**" — *குறள் 716*
+> "**நெடுநீர் மறவி மடிதுயில் நான்கும்**  
+> **கெடுநீரார் காமக் கலன்.**" — *குறள் 605*
 
 </div>
 
 **பொருள்:**  
-அறிவுத்திறனால் பெருமை பெற்றோர் முன்னிலையில் ஆற்றிடும் உரையில் குற்றம் ஏற்படுமானால், அது ஒழுக்க நெறியிலிருந்து தளர்ந்து வீழ்ந்து விட்டதற்கு ஒப்பானதாகும்.
+காலம் தாழ்த்துதல், மறதி, சோம்பல், அளவுக்கு மீறிய தூக்கம் ஆகிய நான்கும், கெடுகின்ற ஒருவர் விரும்பியேறும் தோணிகளாம்!.
 
 **Meaning (English):**  
-(For a minister) to blunder in the presence of those who have acquired a vast store of learning and know (the value thereof) is like a good man stumbling (and falling away) from the path (of virtue).
+Procrastination, forgetfulness, idleness, and sleep, these four things, form the vessel which is desired by those destined to destruction.
 
 
 ## 

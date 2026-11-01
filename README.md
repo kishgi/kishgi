@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நெடுநீர் மறவி மடிதுயில் நான்கும்**  
-> **கெடுநீரார் காமக் கலன்.**" — *குறள் 605*
+> "**இன்மையின் இன்னாது உடைமை முறைசெய்யா**  
+> **மன்னவன் கோற்கீழ்ப் படின்.**" — *குறள் 558*
 
 </div>
 
 **பொருள்:**  
-காலம் தாழ்த்துதல், மறதி, சோம்பல், அளவுக்கு மீறிய தூக்கம் ஆகிய நான்கும், கெடுகின்ற ஒருவர் விரும்பியேறும் தோணிகளாம்!.
+வறுமையின்றி வாழ்ந்தால்கூட அந்த வாழ்க்கை கொடுங்கோல் ஆட்சியின் கீழ் அமைந்துவிட்டால் வறுமைத் துன்பத்தை விட அதிகத் துன்பம் தரக் கூடியது.
 
 **Meaning (English):**  
-Procrastination, forgetfulness, idleness, and sleep, these four things, form the vessel which is desired by those destined to destruction.
+Property gives more sorrow than poverty, to those who live under the sceptre of a king without justice
 
 
 ## 

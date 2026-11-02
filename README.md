@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இன்மையின் இன்னாது உடைமை முறைசெய்யா**  
-> **மன்னவன் கோற்கீழ்ப் படின்.**" — *குறள் 558*
+> "**பயனில பல்லார்முன் சொல்லல் நயனில**  
+> **நட்டார்கண் செய்தலிற் றீது.**" — *குறள் 192*
 
 </div>
 
 **பொருள்:**  
-வறுமையின்றி வாழ்ந்தால்கூட அந்த வாழ்க்கை கொடுங்கோல் ஆட்சியின் கீழ் அமைந்துவிட்டால் வறுமைத் துன்பத்தை விட அதிகத் துன்பம் தரக் கூடியது.
+பலர்முன் பயனில்லாத சொற்களைக் கூறுவது, நட்புக்கு மாறாகச் செயல்படுவதைக் காட்டிலும் தீமையுடையதாகும்.
 
 **Meaning (English):**  
-Property gives more sorrow than poverty, to those who live under the sceptre of a king without justice
+To speak useless things in the presence of many is a greater evil than to do unkind things towards friends.
 
 
 ## 

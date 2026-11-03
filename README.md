@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பயனில பல்லார்முன் சொல்லல் நயனில**  
-> **நட்டார்கண் செய்தலிற் றீது.**" — *குறள் 192*
+> "**பன்மாயக் கள்வன் பணிமொழி அன்றோநம்**  
+> **பெண்மை உடைக்கும் படை.**" — *குறள் 1258*
 
 </div>
 
 **பொருள்:**  
-பலர்முன் பயனில்லாத சொற்களைக் கூறுவது, நட்புக்கு மாறாகச் செயல்படுவதைக் காட்டிலும் தீமையுடையதாகும்.
+நம்முடைய பெண்மை எனும் உறுதியை உடைக்கும் படைக்கலனாக இருப்பது, பல மாயங்களில் வல்ல கள்வராம் காதலரின் பணிவான பாகுமொழியன்றோ?.
 
 **Meaning (English):**  
-To speak useless things in the presence of many is a greater evil than to do unkind things towards friends.
+Are not the enticing words of my trick-abounding roguish lover the weapon that breaks away my feminine firmness?
 
 
 ## 

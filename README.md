@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பன்மாயக் கள்வன் பணிமொழி அன்றோநம்**  
-> **பெண்மை உடைக்கும் படை.**" — *குறள் 1258*
+> "**உண்ணாமை உள்ளது உயிர்நிலை ஊனுண்ண**  
+> **அண்ணாத்தல் செய்யாது அளறு.**" — *குறள் 255*
 
 </div>
 
 **பொருள்:**  
-நம்முடைய பெண்மை எனும் உறுதியை உடைக்கும் படைக்கலனாக இருப்பது, பல மாயங்களில் வல்ல கள்வராம் காதலரின் பணிவான பாகுமொழியன்றோ?.
+உயிர்களை உணவாக்கிக் கொள்ளச் சகதிக்குழியும் வாய் திறவாது; புலால் உண்ணாதவர்கள் இருப்பதால், பல உயிர்கள் கொல்லப்படாமல் வாழ்கின்றன.
 
 **Meaning (English):**  
-Are not the enticing words of my trick-abounding roguish lover the weapon that breaks away my feminine firmness?
+Not to eat flesh contributes to the continuance of life; therefore if a man eat flesh, hell will not open its mouth (to let him escape out, after he has once fallen in).
 
 
 ## 

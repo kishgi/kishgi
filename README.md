@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**உண்ணாமை உள்ளது உயிர்நிலை ஊனுண்ண**  
-> **அண்ணாத்தல் செய்யாது அளறு.**" — *குறள் 255*
+> "**இன்மையின் இன்னாதது யாதெனின் இன்மையின்**  
+> **இன்மையே இன்னா தது.**" — *குறள் 1041*
 
 </div>
 
 **பொருள்:**  
-உயிர்களை உணவாக்கிக் கொள்ளச் சகதிக்குழியும் வாய் திறவாது; புலால் உண்ணாதவர்கள் இருப்பதால், பல உயிர்கள் கொல்லப்படாமல் வாழ்கின்றன.
+வறுமைத் துன்பத்துக்கு உவமையாகக் காட்டுவதற்கு வறுமைத் துன்பத்தைத் தவிர வேறு துன்பம் எதுவுமில்லை.
 
 **Meaning (English):**  
-Not to eat flesh contributes to the continuance of life; therefore if a man eat flesh, hell will not open its mouth (to let him escape out, after he has once fallen in).
+There is nothing that aflicts (one) like poverty.
 
 
 ## 

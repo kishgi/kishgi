@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**இன்மையின் இன்னாதது யாதெனின் இன்மையின்**  
-> **இன்மையே இன்னா தது.**" — *குறள் 1041*
+> "**வேட்பன சொல்லி வினையில எஞ்ஞான்றும்**  
+> **கேட்பினும் சொல்லா விடல்.**" — *குறள் 697*
 
 </div>
 
 **பொருள்:**  
-வறுமைத் துன்பத்துக்கு உவமையாகக் காட்டுவதற்கு வறுமைத் துன்பத்தைத் தவிர வேறு துன்பம் எதுவுமில்லை.
+விரும்பிக் கேட்டாலும் கூட, பயனுள்ளவற்றை மட்டுமே சொல்லிப் பயனற்றவைகளைச் சொல்லாமல் விட்டுவிட வேண்டும்.
 
 **Meaning (English):**  
-There is nothing that aflicts (one) like poverty.
+Ministers should (always) give agreeable advice but on no occasion recommend useless actions, though requested (to do so).
 
 
 ## 

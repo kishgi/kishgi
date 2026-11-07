@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வேட்பன சொல்லி வினையில எஞ்ஞான்றும்**  
-> **கேட்பினும் சொல்லா விடல்.**" — *குறள் 697*
+> "**கல்லாத மேற்கொண் டொழுகல் கசடற**  
+> **வல்லதூஉம் ஐயம் தரும்.**" — *குறள் 845*
 
 </div>
 
 **பொருள்:**  
-விரும்பிக் கேட்டாலும் கூட, பயனுள்ளவற்றை மட்டுமே சொல்லிப் பயனற்றவைகளைச் சொல்லாமல் விட்டுவிட வேண்டும்.
+அறிந்து கொள்ளாதவைகளையும் அறிந்தவர் போல ஒருவர் போலித்தனமாகக் காட்டிக் கொள்ளும் போது, அவர் ஏற்கனவே எந்தத் துறையில் திறமையுடையவராக இருக்கிறாரோ அதைப் பற்றிய சந்தேகமும் மற்றவர்களுக்கு உருவாகும்.
 
 **Meaning (English):**  
-Ministers should (always) give agreeable advice but on no occasion recommend useless actions, though requested (to do so).
+Fools pretending to know what has not been read (by them) will rouse suspicion even as to what they have thoroughly mastered.
 
 
 ## 

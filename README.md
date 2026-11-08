@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கல்லாத மேற்கொண் டொழுகல் கசடற**  
-> **வல்லதூஉம் ஐயம் தரும்.**" — *குறள் 845*
+> "**கரப்பிடும்பை யில்லாரைக் காணின் நிரப்பிடும்பை**  
+> **எல்லாம் ஒருங்கு கெடும்.**" — *குறள் 1056*
 
 </div>
 
 **பொருள்:**  
-அறிந்து கொள்ளாதவைகளையும் அறிந்தவர் போல ஒருவர் போலித்தனமாகக் காட்டிக் கொள்ளும் போது, அவர் ஏற்கனவே எந்தத் துறையில் திறமையுடையவராக இருக்கிறாரோ அதைப் பற்றிய சந்தேகமும் மற்றவர்களுக்கு உருவாகும்.
+இருப்பதைக் கொடுக்க மனமின்றி மறைத்திடும் இழிநிலை இல்லாதவர்களைக் கண்டாலே, இரப்போரின் வறுமைத் துன்பம் அகன்று விடும்.
 
 **Meaning (English):**  
-Fools pretending to know what has not been read (by them) will rouse suspicion even as to what they have thoroughly mastered.
+All the evil of begging will be removed at the sight of those who are far from the evil of refusing.
 
 
 ## 

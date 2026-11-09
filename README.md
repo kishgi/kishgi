@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கரப்பிடும்பை யில்லாரைக் காணின் நிரப்பிடும்பை**  
-> **எல்லாம் ஒருங்கு கெடும்.**" — *குறள் 1056*
+> "**எனைத்துணையர் ஆயினும் என்னாம் தினைத்துணையும்**  
+> **தேரான் பிறனில் புகல்.**" — *குறள் 144*
 
 </div>
 
 **பொருள்:**  
-இருப்பதைக் கொடுக்க மனமின்றி மறைத்திடும் இழிநிலை இல்லாதவர்களைக் கண்டாலே, இரப்போரின் வறுமைத் துன்பம் அகன்று விடும்.
+பிழை புரிகிறோம் என்பதைத் தினையளவுகூடச் சிந்தித்துப் பாராமல், பிறன் மனைவியிடம் விருப்பம் கொள்வது, எத்துணைப் பெருமையுடையவரையும் மதிப்பிழக்கச் செய்துவிடும்.
 
 **Meaning (English):**  
-All the evil of begging will be removed at the sight of those who are far from the evil of refusing.
+However great one may be, what does it avail if, without at all considering his guilt, he goes unto the wife of another ?
 
 
 ## 

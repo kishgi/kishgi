@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**எனைத்துணையர் ஆயினும் என்னாம் தினைத்துணையும்**  
-> **தேரான் பிறனில் புகல்.**" — *குறள் 144*
+> "**கூத்தாட்டு அவைக் குழாத் தற்றே பெருஞ்செல்வம்**  
+> **போக்கும் அதுவிளிந் தற்று.**" — *குறள் 332*
 
 </div>
 
 **பொருள்:**  
-பிழை புரிகிறோம் என்பதைத் தினையளவுகூடச் சிந்தித்துப் பாராமல், பிறன் மனைவியிடம் விருப்பம் கொள்வது, எத்துணைப் பெருமையுடையவரையும் மதிப்பிழக்கச் செய்துவிடும்.
+சேர்த்து வைத்த பணமும் சொத்தும் ஒருவரை விட்டுப் போவது, கூத்து முடிந்ததும் மக்கள் அரங்கத்தை விட்டுக் கலைந்து செல்வதைப் போன்றதாகும்.
 
 **Meaning (English):**  
-However great one may be, what does it avail if, without at all considering his guilt, he goes unto the wife of another ?
+The acquisition of wealth is like the gathering together of an assembly for a theatre; its expenditure is like the breaking up of that assembly.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கூத்தாட்டு அவைக் குழாத் தற்றே பெருஞ்செல்வம்**  
-> **போக்கும் அதுவிளிந் தற்று.**" — *குறள் 332*
+> "**அஞ்சுவ தோரும் அறனே ஒருவனை**  
+> **வஞ்சிப்ப தோரும் அவா.**" — *குறள் 366*
 
 </div>
 
 **பொருள்:**  
-சேர்த்து வைத்த பணமும் சொத்தும் ஒருவரை விட்டுப் போவது, கூத்து முடிந்ததும் மக்கள் அரங்கத்தை விட்டுக் கலைந்து செல்வதைப் போன்றதாகும்.
+ஒருவரை வஞ்சித்துக் கெடுப்பதற்குக் காரணமாக இருப்பது ஆசையேயாகும். எனவே, ஆசைக்கு அடிமையாகக் கூடாது என்ற அச்சத்துடன் வாழ வேண்டும்.
 
 **Meaning (English):**  
-The acquisition of wealth is like the gathering together of an assembly for a theatre; its expenditure is like the breaking up of that assembly.
+It is the chief duty of (an ascetic) to watch against desire with (jealous) fear; for it has power to deceive (and destroy) him.
 
 
 ## 

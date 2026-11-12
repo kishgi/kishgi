@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அஞ்சுவ தோரும் அறனே ஒருவனை**  
-> **வஞ்சிப்ப தோரும் அவா.**" — *குறள் 366*
+> "**பிரித்தலும் பேணிக் கொளலும் பிரிந்தார்ப்**  
+> **பொருத்தலும் வல்ல தமைச்சு.**" — *குறள் 633*
 
 </div>
 
 **பொருள்:**  
-ஒருவரை வஞ்சித்துக் கெடுப்பதற்குக் காரணமாக இருப்பது ஆசையேயாகும். எனவே, ஆசைக்கு அடிமையாகக் கூடாது என்ற அச்சத்துடன் வாழ வேண்டும்.
+அமைச்சருக்குரிய ஆற்றல் என்பது (நாட்டின் நலனுக்காக) பகைவர்க்குத் துணையானவர்களைப் பிரித்தல், நாட்டுக்குத் துணையாக இருப்போரின் நலன் காத்தல், பிரிந்து சென்று பின்னர் திருந்தியவர்களைச் சேர்த்துக் கொளல் எனும் செயல்களில் காணப்படுவதாகும்.
 
 **Meaning (English):**  
-It is the chief duty of (an ascetic) to watch against desire with (jealous) fear; for it has power to deceive (and destroy) him.
+The minister is one who can efect discord (among foes), maintain the good-will of his friends and restore to friendship those who have seceded (from him).
 
 
 ## 

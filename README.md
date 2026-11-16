@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அருமறை சோரும் அறிவிலான் செய்யும்**  
-> **பெருமிறை தானே தனக்கு.**" — *குறள் 847*
+> "**நல்லாறு எனினும் கொளல்தீது மேலுலகம்**  
+> **இல்லெனினும் ஈதலே நன்று.**" — *குறள் 222*
 
 </div>
 
 **பொருள்:**  
-நல்வழிக்கான அறிவுரைகளைப் போற்றி அவ்வழி நடக்காத அறிவிலிகள், தமக்குத் தாமே பெருந்துன்பத்தைத் தேடிக் கொள்வார்கள்.
+பிறரிடமிருந்து நல்வழியில் பொருளைப் பெற்றாலும் அது பெருமையல்ல; சிறுமையே ஆகும். கொடை வழங்குவதால் மேலுலகம் என்று சொல்லப்படுவது கிட்டிவிடப் போவதில்லை; எனினும் பிறர்க்குக் கொடுத்து வாழ்வதே சிறந்த வாழ்க்கையாகும்.
 
 **Meaning (English):**  
-The fool who neglects precious counsel does, of his own accord, a great injury to himself.
+To beg is evil, even though it were said that it is a good path (to heaven). To give is good, even though it were said that those who do so cannot obtain heaven.
 
 
 ## 

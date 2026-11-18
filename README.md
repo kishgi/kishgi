@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**பெருமை பெருமிதம் இன்மை சிறுமை**  
-> **பெருமிதம் ஊர்ந்து விடல்.**" — *குறள் 979*
+> "**அழுக்காறு உடையார்க்கு அதுசாலும் ஒன்னார்**  
+> **வழுக்காயும் கேடீன் பது.**" — *குறள் 165*
 
 </div>
 
 **பொருள்:**  
-ஆணவமின்றி அடக்கமாக இருப்பது பெருமை எனப்படும். ஆணவத்தின் எல்லைக்கே சென்று விடுவது சிறுமை எனப்படும்.
+பொறாமைக் குணம் கொண்டவர்களுக்கு அவர்களை வீழ்த்த வேறு பகையே வேண்டா. அந்தக் குணமே அவர்களை வீழ்த்தி விடும்.
 
 **Meaning (English):**  
-Freedom from conceit is (the nature of true) greatness; (while) obstinacy therein is (that of) meanness.
+To those who cherish envy that is enough. Though free from enemies that (envy) will bring destruction.
 
 
 ## 

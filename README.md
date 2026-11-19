@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அழுக்காறு உடையார்க்கு அதுசாலும் ஒன்னார்**  
-> **வழுக்காயும் கேடீன் பது.**" — *குறள் 165*
+> "**தம்மிற் பெரியார் தமரா ஒழுகுதல்**  
+> **வன்மையு ளெல்லாந் தலை.**" — *குறள் 444*
 
 </div>
 
 **பொருள்:**  
-பொறாமைக் குணம் கொண்டவர்களுக்கு அவர்களை வீழ்த்த வேறு பகையே வேண்டா. அந்தக் குணமே அவர்களை வீழ்த்தி விடும்.
+அறிவு ஆற்றல் ஆகியவற்றில் தம்மைக் காட்டிலும் சிறந்த பெரியவராய் இருப்பவரோடு உறவுகொண்டு அவர்வழி நடப்பது மிகப்பெரும் வலிமையாக அமையும்.
 
 **Meaning (English):**  
-To those who cherish envy that is enough. Though free from enemies that (envy) will bring destruction.
+So to act as to make those men, his own, who are greater than himself is of all powers the highest.
 
 
 ## 

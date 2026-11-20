@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**தம்மிற் பெரியார் தமரா ஒழுகுதல்**  
-> **வன்மையு ளெல்லாந் தலை.**" — *குறள் 444*
+> "**அரியகற்று ஆசற்றார் கண்ணும் தெரியுங்கால்**  
+> **இன்மை அரிதே வெளிறு.**" — *குறள் 503*
 
 </div>
 
 **பொருள்:**  
-அறிவு ஆற்றல் ஆகியவற்றில் தம்மைக் காட்டிலும் சிறந்த பெரியவராய் இருப்பவரோடு உறவுகொண்டு அவர்வழி நடப்பது மிகப்பெரும் வலிமையாக அமையும்.
+அரிய நூல்கள் பல கற்றவர் என்றும், எக்குறையும் அற்றவர் என்றும் புகழப்படுவோரைக்கூட ஆழமாக ஆராய்ந்து பார்க்கும்போது அவரிடம் அறியாமை என்பது அறவே இல்லை எனக் கணித்துவிட இயலாது.
 
 **Meaning (English):**  
-So to act as to make those men, his own, who are greater than himself is of all powers the highest.
+When even men, who have studied the most dificult works, and who are free from faults, are (carefully) examined, it is a rare thing to find them without ignorance.
 
 
 ## 

@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**அரியகற்று ஆசற்றார் கண்ணும் தெரியுங்கால்**  
-> **இன்மை அரிதே வெளிறு.**" — *குறள் 503*
+> "**புகழ்இன்றால் புத்தேள்நாட்டு உய்யாதால் என்மற்று**  
+> **இகழ்வார்பின் சென்று நிலை.**" — *குறள் 966*
 
 </div>
 
 **பொருள்:**  
-அரிய நூல்கள் பல கற்றவர் என்றும், எக்குறையும் அற்றவர் என்றும் புகழப்படுவோரைக்கூட ஆழமாக ஆராய்ந்து பார்க்கும்போது அவரிடம் அறியாமை என்பது அறவே இல்லை எனக் கணித்துவிட இயலாது.
+இகழ்வதையும் பொறுத்துக்கொண்டு, மானத்தை விட்டுவிட்டு ஒருவர் பின்னே பணிந்து செல்வதால் என்ன புகழ் கிடைக்கும்? இல்லாத சொர்க்கமா கிடைக்கும்?.
 
 **Meaning (English):**  
-When even men, who have studied the most dificult works, and who are free from faults, are (carefully) examined, it is a rare thing to find them without ignorance.
+Of what good is it (for the high-born) to go and stand in vain before those who revile him ? it only brings him loss of honour and exclusion from heaven.
 
 
 ## 

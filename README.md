@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**புகழ்இன்றால் புத்தேள்நாட்டு உய்யாதால் என்மற்று**  
-> **இகழ்வார்பின் சென்று நிலை.**" — *குறள் 966*
+> "**வாணிகம் செய்வார்க்கு வாணிகம் பேணிப்**  
+> **பிறவும் தமபோல் செயின்.**" — *குறள் 120*
 
 </div>
 
 **பொருள்:**  
-இகழ்வதையும் பொறுத்துக்கொண்டு, மானத்தை விட்டுவிட்டு ஒருவர் பின்னே பணிந்து செல்வதால் என்ன புகழ் கிடைக்கும்? இல்லாத சொர்க்கமா கிடைக்கும்?.
+பிறர் பொருளாக இருப்பினும் அதனைத் தன் பொருளைப் போலவே கருதி நேர்மையுடன் வாணிகம் செய்தலே வணிக நெறியெனப்படும்.
 
 **Meaning (English):**  
-Of what good is it (for the high-born) to go and stand in vain before those who revile him ? it only brings him loss of honour and exclusion from heaven.
+The true merchandize of merchants is to guard and do by the things of others as they do by their own.
 
 
 ## 

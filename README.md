@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**வாணிகம் செய்வார்க்கு வாணிகம் பேணிப்**  
-> **பிறவும் தமபோல் செயின்.**" — *குறள் 120*
+> "**கல்லா ஒருவன் தகைமை தலைப்பெய்து**  
+> **சொல்லாடச் சோர்வு படும்.**" — *குறள் 405*
 
 </div>
 
 **பொருள்:**  
-பிறர் பொருளாக இருப்பினும் அதனைத் தன் பொருளைப் போலவே கருதி நேர்மையுடன் வாணிகம் செய்தலே வணிக நெறியெனப்படும்.
+கல்வியறிவில்லாதவர்கள் தங்களைப் பெரிய மேதைகளைப் போல் காட்டிக் கொள்ளும் போலி வேடம், கற்றுத் தேர்ந்த அறிஞர்களிடம் அவர்கள் உரையாடும்போது கலைந்து போய்விடும்.
 
 **Meaning (English):**  
-The true merchandize of merchants is to guard and do by the things of others as they do by their own.
+The self-conceit of an unlearned man will fade away, as soon as he speaks in an assembly (of the learned)
 
 
 ## 

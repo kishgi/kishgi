@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கல்லா ஒருவன் தகைமை தலைப்பெய்து**  
-> **சொல்லாடச் சோர்வு படும்.**" — *குறள் 405*
+> "**கூழுங் குடியும் ஒருங்கிழக்கும் கோல்கோடிச்**  
+> **சூழாது செய்யும் அரசு.**" — *குறள் 554*
 
 </div>
 
 **பொருள்:**  
-கல்வியறிவில்லாதவர்கள் தங்களைப் பெரிய மேதைகளைப் போல் காட்டிக் கொள்ளும் போலி வேடம், கற்றுத் தேர்ந்த அறிஞர்களிடம் அவர்கள் உரையாடும்போது கலைந்து போய்விடும்.
+நாட்டுநிலை ஆராயாமல் கொடுங்கோல் புரியும் அரசு, நிதி ஆதாரத்தையும் மக்களின் மதிப்பையும் இழந்துவிடும்.
 
 **Meaning (English):**  
-The self-conceit of an unlearned man will fade away, as soon as he speaks in an assembly (of the learned)
+The king, who, without reflecting (on its evil consequences), perverts justice, will lose at once both his wealth and his subjects.
 
 
 ## 

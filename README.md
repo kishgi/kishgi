@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**கூழுங் குடியும் ஒருங்கிழக்கும் கோல்கோடிச்**  
-> **சூழாது செய்யும் அரசு.**" — *குறள் 554*
+> "**முற்றாற்றி முற்றி யவரையும் பற்றாற்றிப்**  
+> **பற்றியார் வெல்வது அரண்.**" — *குறள் 748*
 
 </div>
 
 **பொருள்:**  
-நாட்டுநிலை ஆராயாமல் கொடுங்கோல் புரியும் அரசு, நிதி ஆதாரத்தையும் மக்களின் மதிப்பையும் இழந்துவிடும்.
+முற்றுகையிடும் வலிமைமிக்க படையை எதிர்த்து, உள்ளேயிருந்து கொண்டே போர் செய்து வெல்வதற்கு ஏற்ற வகையில் அமைந்ததே அரண் ஆகும்.
 
 **Meaning (English):**  
-The king, who, without reflecting (on its evil consequences), perverts justice, will lose at once both his wealth and his subjects.
+That is a fort whose inmates are able to overcome without losing their ground, even abler men who have besieged it.
 
 
 ## 

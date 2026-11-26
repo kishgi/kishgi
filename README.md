@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**முற்றாற்றி முற்றி யவரையும் பற்றாற்றிப்**  
-> **பற்றியார் வெல்வது அரண்.**" — *குறள் 748*
+> "**நலத்தின்கண் நாரின்மை தோன்றின் அவனைக்**  
+> **குலத்தின்கண் ஐயப் படும்.**" — *குறள் 958*
 
 </div>
 
 **பொருள்:**  
-முற்றுகையிடும் வலிமைமிக்க படையை எதிர்த்து, உள்ளேயிருந்து கொண்டே போர் செய்து வெல்வதற்கு ஏற்ற வகையில் அமைந்ததே அரண் ஆகும்.
+என்னதான் அழகும் புகழும் உடையவனாக இருந்தாலும் அன்பு எனும் ஒரு பண்பு இல்லாதவனாக இருந்தால் அவன் பிறந்த குலத்தையே சந்தேகிக்க வேண்டிய நிலை ஏற்படும்.
 
 **Meaning (English):**  
-That is a fort whose inmates are able to overcome without losing their ground, even abler men who have besieged it.
+If one of a good family betrays want of affection, his descent from it will be called in question.
 
 
 ## 

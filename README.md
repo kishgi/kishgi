@@ -1,15 +1,15 @@
 <div align="left">
 
-> "**நலத்தின்கண் நாரின்மை தோன்றின் அவனைக்**  
-> **குலத்தின்கண் ஐயப் படும்.**" — *குறள் 958*
+> "**நச்சப் படாதவன் செல்வம் நடுவூருள்**  
+> **நச்சு மரம்பழுத் தற்று.**" — *குறள் 1008*
 
 </div>
 
 **பொருள்:**  
-என்னதான் அழகும் புகழும் உடையவனாக இருந்தாலும் அன்பு எனும் ஒரு பண்பு இல்லாதவனாக இருந்தால் அவன் பிறந்த குலத்தையே சந்தேகிக்க வேண்டிய நிலை ஏற்படும்.
+வெறுக்கப்படுகிறவரிடம் குவிந்துள்ள செல்வமும், ஊர் நடுவே நச்சு மரத்தில் காய்த்துக் குலுங்குகின்ற பழமும் வெவ்வேறானவையல்ல!.
 
 **Meaning (English):**  
-If one of a good family betrays want of affection, his descent from it will be called in question.
+The wealth of him who is disliked (by all) is like the fruit-bearing of the etty tree in the midst of a town.
 
 
 ## 
